@@ -1,0 +1,139 @@
+# Chapter 10: The Weight of Maybe
+
+Morning came with an alarm from the other room.
+
+Cody opened his eyes to daylight bleeding through the blinds, the fold-out creaking under him like it was complaining. For a second he forgot where he was. Then it all came back: the dorm, the wolf, the portal, the world full of walking, talking animals. Right. Still here. He sat up and stretched, spine cracking like knuckles. Three hours of sleep, maybe. Call it portal jet lag. Call it whatever made sense, because nothing else did.
+
+The alarm cut off with a slap. Footsteps padded from the bedroom, and Lukas shuffled into the living area, fur mashed flat on one side like he'd slept on it wrong, athletic shorts hanging low. He scratched at his ribs with one paw, yawning wide enough to show every fang.
+
+"Morning." Lukas glanced at the fold-out, then at Cody. "Coffee's brewing. Smells like burnt optimism, but it works."
+
+Cody swung his legs off the mattress. "Morning to you too. You sound almost cheerful."
+
+"Don't get used to it." Lukas moved toward the kitchen counter, where the coffee maker was already gurgling away. "You want the shower before Thorne hogs the hot water, now's your window."
+
+"Shower's all Thorne's." Cody stood, rolling the stiffness out of his shoulders. "Humans usually only need one a day. Coffee, though. Always up for coffee."
+
+Lukas poured two mugs, the stuff coming out black as tar. "Black enough to bite back. Help yourself."
+
+Cody took the mug and wrapped both hands around it, letting the heat soak into his palms. The first sip hit his tongue, bitter and strong, and something in his brain finally kicked on.
+
+"Too bad I forgot to pack deodorant on my portal trip," he said. "Wait. Deodorant exists in this world?"
+
+Lukas snorted. "We sweat, we stink, we invented sticks to fix it. Same as you." He nodded toward the hallway. "Thorne keeps a spare in the communal bathroom. Smells like pine. Help yourself."
+
+Cody thought about it. Then: "Nah, I'm good. I'll take the stinky pits."
+
+"Bold strategy." Lukas raised an eyebrow. "Just don't sit upwind of Gem. She'll spritz you with something and call it an intervention." He wrinkled his nose. "Your call, stinky. But the couch might file for asylum."
+
+Cody sighed. "Fine, fine. Only because you threatened the couch." He set his mug down and headed for the hallway. "I'll use the deodorant of one of your floormates I've never met and hope he doesn't mind human stink on his stuff."
+
+"Thorne's shared worse. Locker room diplomacy." Lukas smirked. "If he gives you a look, tell him it's interspecies cultural exchange."
+
+Cody found the communal bathroom, found the deodorant, and put it on quick. Pine and something else he couldn't name. When he walked back into the dorm, Lukas was leaning against the counter, mug in hand.
+
+"There. Done." Cody spread his arms. "Now if the bear attacks me, I'm hiding behind you."
+
+"Thorne's harmless. Quiet type." Lukas looked him over. "I'm a linebacker, not a shield. You're on your own if he decides to ask questions."
+
+"Fucker."
+
+The word came out with a laugh attached. A real laugh, not the fake polite kind he'd learned to crank out when he had to. This one caught him off guard, coming up from somewhere he didn't know he still had.
+
+Lukas caught it. His ears twitched, something flickering in those amber eyes. He held Cody's gaze a beat longer than he needed to.
+
+"First real one I've heard from you," he said, voice dropping. "Keep them coming."
+
+Cody shook his head, still smiling. "No promises. What's the agenda today? Mystical portals? Talking carp? Paintings that come to life?"
+
+Lukas rinsed his mug in the sink. "Library first. Gem wants to check the resonance. Then breakfast, low profile. After that?" He shrugged. "Could show you the stadium tunnels. Ghost stories and stale nachos. Or we sit tight and let you think. Your clock, your call."
+
+"Unfortunately, you designated yourself as the tour guide." Cody finished his coffee. "So lead on. I'm just the tourist."
+
+"Tour guide gets hazard pay," Lukas muttered, but he was already moving toward the door. "Fine. Library, then tunnels. You can decide if the bleachers smell like glory or nacho regret." He paused. "Grab that shirt. Concrete's cold."
+
+Cody pulled on the borrowed shirt from last night and followed Lukas out. The morning air had that bite to it, the campus quieter than the day before.
+
+"Hey," Cody said as they walked. "Not that I mind borrowing clothes, but is there somewhere I can find something that actually fits? I have some money..." He trailed off, remembering. Different world. Different money. "Sorry. Never mind. Tight shirt it is."
+
+Lukas flicked an ear. "Campus store opens at nine. Human section's two racks near the back. I've got meal points to burn." He tossed Cody a worn canvas tote. "Till then, suffer the shirt. Makes you look like a lost pup. Campus security loves that."
+
+"By the way," Cody asked as they crossed the quad, "whose shirts have I been wearing?"
+
+"Mine." Lukas didn't slow down. "Washed, if that matters."
+
+"Really? Dude, did you bulk up during college? These are tight on me, and looking at you, I'd expect something baggier."
+
+Lukas flexed a shoulder, fur bristling a little. "Freshman year me. Haven't worn it since I quit swimming. Shoulders kept growing." He flicked the sleeve riding up Cody's wrist. "Consider it a loan, not a hand-me-down. Stretch it and I'll make you run laps."
+
+"How many days are you willing to wait for me to complete one?"
+
+Lukas snorted. "One. After that I'm tying you to the goalpost and letting the kicker practice."
+
+Cody laughed again, easier this time. "Fucker. Now I owe you for two."
+
+"Tab's open." Lukas showed teeth in what might've been a grin. "Keep laughing and I'll own your soul by dinner."
+
+Cody's pattern brain noted the route. Lukas wasn't taking the main paths. He cut behind the science building, under an archway, past a row of vending machines tucked into an alcove. Avoiding the open spaces. Avoiding the crowds.
+
+*Filing that away.*
+
+"Alright, loan shark. Why are we meeting Gem again? She need another sample?"
+
+"Not a swab. She wants to eyeball the resonance herself, make sure it's holding steady." Lukas steered them past the library's main entrance toward a side door. "Also, she's nosy. Humor her."
+
+A security camera mounted above the main entrance tracked their movement. Cody caught it in his peripheral vision, the slow pan of the lens. Lukas had already steered them out of its arc.
+
+*That's twice now. Side routes. Camera blind spots.*
+
+Cody didn't ask. Just filed it with the rest.
+
+"She talked plenty yesterday. Felt like she already knew my whole story before I opened my mouth."
+
+"She's fox-quick. Reads the room before you finish sitting down." Lukas tilted his head toward the back stairs. "Special Collections. Try not to look edible."
+
+Cody stopped walking. "Wait. Humans are eaten in this world?"
+
+"Only in fairy tales and frat rumors." Lukas flicked an ear, amused. "Relax. Cows here run dairy co-ops, not cannibal clubs. Still, Gem's got questions. Lots of them. Be ready."
+
+"And with that sudden confidence booster," Cody said flatly, "let's meet up with her. I'll make sure to look as inedible as possible."
+
+"Stand up straight, look broke. Nobody eats tuition money."
+
+"Human lost in an anthropomorphic world. Pretty sure I've got that covered."
+
+"Broke and clueless. Perfect camouflage." Lukas nudged him up the last step. "Door on the left. Remember: short answers, don't blink first."
+
+Special Collections smelled like dust and old paper. Gem was already there, sitting on a study ladder, her red tail swinging back and forth like a metronome. She looked up when they came in, face lighting up like she'd won a prize.
+
+"There's my favorite interdimensional tourist." She hopped down a rung, pencil still stuck behind one ear. "Resonance is holding steady. Stronger than I expected, actually."
+
+She dropped a small vial into Lukas's waiting paw. Silver dust swirled inside the glass. "Insurance. One pinch, one way home. Works as long as the resonance holds."
+
+Cody watched the handoff, head doing circles. The baggage of his old world. The empty apartment. The father who didn't give a damn. The community college going nowhere. There was nothing holding him back there. And here, at least, there was something. Someone. A friend.
+
+But a decision like this? Three days wasn't enough.
+
+Lukas pocketed the vial, claws clicking against the glass. His eyes found Cody. "No pressure, tourist. Library's got quiet corners if you need to think."
+
+Cody took a breath. "I'm not leaving yet. But I'm not ready to say forever either."
+
+The words hung there.
+
+Lukas's ears twitched. For a second, he just looked at Cody. Then he nodded slowly. "Fair. No rush."
+
+Gem's tail flicked. She studied Cody for a moment. "Resonance is still fading slow. You've got most of the week left." She hopped down from the ladder. "Take the time, human. Just don't waste it."
+
+She walked past them, paws quiet on the floor, and was gone before the words finished echoing.
+
+Lukas let out a slow breath. "Week's a lot of days here. You'll know by then." He started toward the stairs. "Come on, stray. Let's feed you before you spiral."
+
+"I'm not spiraling."
+
+"You've got that look." Lukas glanced back. "The one where your brain's running laps. Food helps. Trust me."
+
+Cody fell into step beside him. A week. Seven days to figure out if this world was home or just a rest stop.
+
+He'd take it.
+
+---

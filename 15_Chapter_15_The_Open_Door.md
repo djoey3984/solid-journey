@@ -1,0 +1,213 @@
+# Chapter 15: The Open Door
+
+
+Cody woke to the smell of coffee and the sound of the closet door sliding open.
+
+He lay still for a moment, letting the room come into focus. Pale light through the blinds, the fold-out couch springs digging into his back in the same places they always did, water running through pipes somewhere down the hall.
+
+Last night kept surfacing. The fight. The way Lukas had come back down the stairs, ears flat, tail tucked. *You matter to me.* The words had landed somewhere deep, in a place Cody didn't let people reach. He still wasn't sure what to do with them.
+
+He turned his head. Lukas was pulling a practice jersey from the closet, already dressed from the waist down. His fur caught the morning light, silver streaks threading through the darker coat. When he moved, there was that easy looseness in his shoulders again. Whatever broke last night had started to mend.
+
+"Hey." Cody's voice came out rough. "What time is it?"
+
+Lukas glanced over. Something flickered in his expression, almost a smile. "Little after eight. Practice in forty, so I gotta run soon." He pulled the jersey over his head, tugging it down over his chest. The fabric stretched tight across his shoulders. Cody looked away, suddenly very interested in the ceiling.
+
+"How you feeling? You were out cold when I got up. Thought you might actually be dead."
+
+"Fine." Cody pushed himself up, the couch frame groaning. "Slept okay."
+
+"Liar. That couch is a torture device." Lukas crossed to the kitchenette and poured two cups of coffee. He slid one toward the edge of the counter, same spot he always did. "Black, strong enough to strip paint. The Cody Guiles special."
+
+Cody took it. The mug was warm in his hands. "You memorized my coffee order."
+
+"You've been here four days. Doesn't take a genius to notice." Lukas leaned against the counter, watching him over the rim of his own mug. His tail swayed once, low and easy.
+
+The silence stretched, comfortable but full of something unspoken. Something had shifted between them. Cody could feel it, even if he couldn't name it. The air was different, charged in a way it hadn't been before last night. He didn't know if Lukas felt it too, or if this was just him, reading patterns that weren't there. He took a sip of coffee to avoid saying something stupid.
+
+Lukas set his mug down and grabbed his gym bag from the floor. "Film review first, then drills. Coach wants us sharp for Saturday."
+
+"Big game?"
+
+"Rivalry game. Rumi's been running his mouth all week." The name landed flat. His jaw didn't tighten the way it had yesterday, and Cody filed that away as progress. "Should be back by eleven." He slung the bag over his shoulder and stopped at the door, paw resting on the frame. He didn't turn around. "Stay put, okay?"
+
+*Stay safe. Stay hidden. Don't do anything stupid while I'm gone.*
+
+"Yeah," Cody said. "I'll be here."
+
+Lukas nodded once. Then he was gone, the door clicking shut behind him.
+
+---
+
+An hour later, the room felt different without Lukas in it.
+
+Cody stood by the window, watching the quad three stories below. Students crossed in pairs and clusters, breath fogging in the morning chill, leaves skittering across the brick paths. Normal life. The kind he used to have.
+
+*Stay put.* The words kept circling back. Like a dog waiting for its owner.
+
+Cody pushed the thought away. Lukas didn't mean it like that. He was just being careful. They were all being careful, all the time, and Cody was grateful for it. He was. The walls of the room pressed in. The fold-out couch where he slept, the gaming setup he didn't touch, the trophies on the shelf he tried not to look at. All of it Lukas's. None of it his. He needed air. Or at least a different set of walls.
+
+Cody grabbed his jacket from the back of the couch, the charcoal canvas one with the Timberwood crest, and headed for the door. The common lounge downstairs had vending machines, a TV, couches that weren't his borrowed bed. It was something. He pulled the door open and stepped into the hallway. The carpet was worn down the middle, a path of footsteps from years of students trudging to class. He passed Thorne's door, then Benji's, then hit the stairwell.
+
+Halfway down the second flight, footsteps came up from below.
+
+A raccoon in a campus polo rounded the landing, clipboard tucked under one arm. Student worker, probably. The kind of kid who signed up for work-study because the alternative was asking parents for money. The raccoon looked up, saw Cody, and stopped.
+
+"Oh. You're the one." He scanned Cody like he was checking a box. "Human, right? Staying with Raines?"
+
+Cody's stomach dropped. He wasn't supposed to exist. Not officially. "Who's asking?"
+
+The raccoon shrugged. "Got a delivery. Admin sent me to Westfall, third floor, looking for the human." He held out a folded piece of paper. "Guess I found you."
+
+Cody took it. The paper was heavy, the kind they used for official university stuff. A crest was embossed at the top. "Thanks," he said, but the raccoon was already leaving, door swinging shut behind him.
+
+Cody turned the paper over. No envelope. Just folded once, nothing written on the outside. He unfolded it.
+
+---
+
+*Cody,*
+
+*I understand you've had an unusual introduction to our campus. I imagine the past few days have been disorienting, perhaps frightening. That's understandable.*
+
+*I'd like to offer some clarity about your situation, if you're willing. My door is open this morning. No pressure, no obligations. Just a conversation between two people who might benefit from understanding each other.*
+
+*You deserve answers. I may have some.*
+
+*Warm regards,*
+*V. Graves*
+*Dean of Academic Affairs*
+*Office 412*
+
+---
+
+Cody read it twice. Then a third time. His name. Just his first name, but still. How did the Dean of Academic Affairs know his name?
+
+He leaned against the stairwell wall, the note heavy in his hands. His first instinct was to wait for Lukas. Show him the note, let him decide what to do. That was the safe play. That was what Lukas would want. But Lukas would say no. Lukas always said no. Every path they walked was chosen to avoid something. Every decision was made for Cody, not with him. He thought about the past few days. The side routes. The camera blind spots. The way Lukas checked his phone and didn't explain, the way Gem talked about him like he was a problem to be solved, the way everyone whispered when they thought he wasn't listening. They were protecting him. He knew that. But when was the last time anyone asked what HE wanted?
+
+*Just a conversation.* This could be a trap. Obviously it could be a trap. But it could also be information. Intel. The thing you gathered before you made a move, not after.
+
+Cody pushed off the wall. His legs felt steadier than he expected. He headed for the door.
+
+---
+
+The walk across campus felt different alone.
+
+For three days, Lukas had been a wall between Cody and everything else. A warm wall, a protective wall, but still a wall. Now there was nothing between Cody and the morning air, the students cutting across the quad, the buildings that had only ever been backdrop. He took the main path. The one Lukas always avoided.
+
+It cut past the science building, the one with the double helix sculpture out front. Stainless steel, taller than Lukas, catching the morning light in a way that made it hard to look at directly. The building itself was brick, darker than the rest of campus, six stories when everything else topped out at four. Wide glass doors showed a lobby that always seemed empty no matter what time of day it was. Cody had seen it a dozen times from a distance. Up close, it should have looked like just another building. Students sat on the concrete planters out front, coffee cups in hand, textbooks open on their laps. But none of them were facing the doors. They sat with their backs to the glass, angled toward the quad, like they'd chosen the spot for the sun and nothing else. Cody kept walking. Maybe Lukas was paranoid. Maybe they all were. But he walked a little faster anyway.
+
+The admin building sat at the north edge of the quad, brick and ivy, older than most of the campus. Cody pushed through the main doors and the smell hit him first: floor wax and old paper and that particular staleness of places where important things got decided by people who never had to stand. The directory by the elevator said Office of Academic Affairs was on the fourth floor. He pressed the button and waited.
+
+The elevator was slow and old, the kind that made you think about fraying cables, skipped inspections, the last time anyone bothered to check. Cody watched the numbers climb: 2, 3, 4. The doors opened with a sound like a sigh. The hallway was carpeted, muted, the kind of quiet that made you want to whisper. Doors lined both sides, nameplates in brass. Most were closed. At the far end, one stood slightly open. The brass plate caught the light:
+
+**412**
+**VICTOR GRAVES, Ph.D.**
+**Dean of Academic Affairs**
+
+Cody walked toward it. His footsteps didn't make any sound on the carpet, which felt wrong somehow, like the building was swallowing evidence of his presence. He stopped outside the door. Through the gap, he could see the edge of a window, daylight spilling across a wooden floor. He knocked.
+
+"Come in." The voice was soft, warm even, the kind that made you think of guidance counselors and family doctors.
+
+Cody pushed the door open.
+
+---
+
+The light hit him first. Floor-to-ceiling windows lined the back wall, the whole campus spread out below like a postcard. Morning sun poured in, catching dust motes, making the room feel bigger than it probably was. A view for important people doing important things.
+
+Then the photos. They were everywhere. Framed shots on the walls, on the desk, on the bookshelf behind it. A silver-furred lynx with kind eyes, standing next to Graves at what looked like a faculty party. Two young snow leopards in graduation robes, grinning at the camera. A family vacation shot, everyone smiling, mountains in the background. More photos lined the walls: Graves shaking hands with someone official, Graves cutting a ribbon in front of a building, Graves at a podium receiving an award. A framed thank-you card covered in student signatures. A crayon drawing taped to the side of the bookshelf, the kind a little kid makes when they're proud of something. The desk was mahogany, worn smooth in the spot where paws would rest. A mug sat near the edge: "World's Okayest Dean." A bowl of wrapped candies caught the light.
+
+And in the middle of all of it, rising from a leather chair, was the snow leopard from the photos. He was taller than Cody expected. Lean, silver-white fur with dark spots that had faded to gray at the edges. Pale blue eyes that seemed to take in everything without moving. He wore a charcoal suit, perfectly fitted, a navy tie, a watch that probably cost more than Cody's dad made in a month.
+
+"Cody." The voice matched the note, quiet and unhurried. "Thank you for coming. Please, have a seat." He gestured to one of the chairs facing the desk. Leather, well-worn, positioned so the window was behind them. Cody would be backlit. Graves would see every expression on his face. He sat down anyway.
+
+"Can I offer you something? Water? Coffee?" Graves nodded toward the candy bowl. "These are actually quite good. Butterscotch. My weakness."
+
+"I'm fine."
+
+"Suit yourself." Graves took one himself, unwrapping it with the casual ease of someone who'd done it a thousand times. He popped it in his mouth, crumpled the wrapper, dropped it in a small trash can by the desk. "There. Now you know I'm not trying to poison you." Cody didn't laugh. Graves didn't seem to expect him to. The snow leopard settled back in his chair, paws folded on the desk. His expression could have been curiosity or patience. Hard to tell.
+
+"You know, I realized I don't even know your full name."
+
+Cody's hands went still in his lap. His real name. The one on the police report and the local news segment and the scholarship that got revoked. The name the whole town learned to say with a certain tone. He could lie. Make something up. Lukas would probably tell him to. But Lukas wasn't here. And wasn't that the whole point? Making his own choices?
+
+"Guiles."
+
+"Guiles," Graves repeated, nodding once. He didn't reach for a pen or paper. The name just disappeared somewhere behind those pale blue eyes. "Thank you, Cody. I imagine you've heard things about me. About the administration. About what we might want from someone in your situation."
+
+Cody didn't answer. His eyes drifted to the family photos on the desk. The wife, the kids. The frames looked old. Dusty on top, like they hadn't been moved in years.
+
+"I won't pretend those concerns are baseless," Graves continued. "There are people in any institution who see anomalies as opportunities. Research subjects. Data points. I've worked with some of them. I know the type." He paused, letting that land. "But I'm not one of them. And I'm not interested in treating you like a specimen."
+
+"What are you interested in?"
+
+The question came out sharper than Cody meant it to. Graves didn't flinch. If anything, his expression warmed. "You," he said simply. "Your experience. Your survival." He leaned forward slightly, paws still folded. "Do you understand how remarkable you are, Cody? Cross-dimensional transit has a mortality rate we don't discuss publicly. The stress on biological systems, the cellular disruption, the neurological trauma... most arrivals don't survive the crossing. The ones who do are often... damaged. Permanently."
+
+Cody's throat tightened. He thought about the white void. The way reality had folded in on itself. The black that came after.
+
+"You walked through something that should have killed you," Graves said. "And you came out the other side intact. Healthy. Functional. That's not luck. That's something else entirely."
+
+"Something you want to study."
+
+"Something I want to understand." Graves spread his paws, a gesture of openness. "This isn't about locking you in a cage or running tests in some basement. I'm talking about learning what made you different. Documenting it. And potentially helping the next person who falls through." The next person. Cody hadn't thought about that. The idea that there might be others, falling through portals, dying in transit, alone and scared and with no one to catch them on the other side.
+
+"What if what's in your biology could save someone?" Graves asked. "What if understanding your survival could make the difference for a kid like you, five years from now, who doesn't have a Lukas Raines waiting in a pine grove?"
+
+The name landed like a stone in still water. "You know Lukas."
+
+"I know everyone on my campus, Cody." The first name again. Friendly. Familiar. Like they'd known each other for years instead of minutes. "He's a good young man. Protective. Loyal. The kind of person who sees someone in trouble and acts without thinking about consequences." He paused. "Which is admirable. But not always wise."
+
+The wrong details kept surfacing. The photos that were too old. The candy bowl that was too full. The way Graves controlled the light, the seating, the rhythm of the conversation. The way he used Cody's name like they were friends. But nothing he was saying was wrong. That was the problem. Nothing was a lie.
+
+"Your friends care about you," Graves said. "That's obvious. But I wonder sometimes..." He let the sentence hang.
+
+"Wonder what?"
+
+"Whether they're protecting you. Or whether they're keeping you scared."
+
+The words hit somewhere Cody didn't expect. Somewhere soft. "There's a difference," Graves continued, "between helping someone and making them dependent. Between keeping someone safe and keeping them small. I've seen it before. Good intentions calcifying into control. The person being protected loses their agency so gradually they don't even notice it's gone."
+
+Cody thought about the side routes. The blind spots. The way Lukas decided where they walked, when they ate, who they talked to. The way every choice was made FOR him.
+
+"When's the last time you decided something for yourself?" Graves asked. "Where to go. What to do. Who to speak with." The question sat in the air like smoke.
+
+"I decided to come here," Cody said.
+
+Graves smiled. It was a small smile, almost sad. "Yes. You did. And I suspect that wasn't easy." He was right. It hadn't been.
+
+"You seem like someone who's used to taking care of himself," Graves said. "Someone who's had to. Because no one else would."
+
+Cody went still.
+
+"I recognize the look," Graves said, voice low. "I was that young man once. Capable. Determined. Surrounded by people who meant well but couldn't stop treating me like a problem to be managed. Who couldn't see that I didn't need protection. I needed trust." The words settled into Cody's chest like sand filling a hole. How did he know? How could he possibly know?
+
+"It's exhausting," Graves said. "Being protected by people who won't let you protect yourself. Being helped by people who don't trust you to help them back. You start to wonder if you're actually the person they see, or if you're just their idea of who you should be."
+
+Cody didn't answer. Couldn't.
+
+Graves let the silence stretch. Then he stood, and the conversation was over. Just like that. He was in control of when it ended, and he'd decided it ended now. "I'm not asking you to decide anything today," he said. "I'm not asking you to trust me, or agree with me, or do anything at all." He walked around the desk, slowly, giving Cody space. "I just wanted you to know that my door is open. If you want answers, real answers, not filtered through people who've already decided what's best for you... you know where to find me."
+
+He stopped a few feet away. The light from the window fell across his face, and for a moment Cody saw something underneath the warmth. Something patient. Something that had been waiting a very long time.
+
+"Think about it," Graves said. "That's all I ask."
+
+---
+
+The hallway felt longer on the way out. Cody walked past the brass nameplates, the closed doors, the carpet that swallowed his footsteps. The elevator took forever. The lobby smelled like floor wax and paper and something else now, something he couldn't name.
+
+Outside, the campus looked exactly the same. Students crossing the quad. Someone laughing near the fountain. The science building's helix sculpture caught the midmorning light, throwing a glare across the brick. The lobby behind those glass doors was still empty, but that didn't seem strange anymore. Lots of buildings had empty lobbies.
+
+But Cody wasn't seeing it the same way.
+
+He replayed the conversation in his head. The photos, the candy, the way Graves had controlled everything without ever raising his voice. The way he'd known exactly which buttons to push. *Someone who's used to taking care of himself. Because no one else would.* It wasn't wrong. That was the thing. None of it was wrong. Lukas did make all the decisions. Gem did talk about him like a problem. Everyone did whisper when they thought he wasn't listening. But they were protecting him. Weren't they?
+
+He thought about telling Lukas. Showing him the note, explaining where he'd been, letting him decide what it meant. But Lukas would be angry. Lukas would say he'd been stupid, reckless, that he should have waited, should have trusted them, should have stayed put like a good little"”
+
+Cody stopped walking. His hands had curled into fists without him noticing. There was heat in his knuckles, tight and sharp, like his body was getting ready for something his brain hadn't agreed to yet. He uncurled them. Breathed. He was doing it again. Running every decision through what Lukas would think. What Lukas would want. What Lukas would decide. *When's the last time YOU decided something?*
+
+He folded the note and put it in his pocket. He'd think about it. That was all. Just think. The morning sun was warm on his face as he walked back toward the dorm. Somewhere behind him, a clock tower chimed ten. He had an hour before Lukas got back. An hour to figure out what any of this meant. An hour to decide if the doubt taking root in his chest was wisdom or poison. He didn't know yet.
+
+But he was starting to wonder.
+
+---
+
+---

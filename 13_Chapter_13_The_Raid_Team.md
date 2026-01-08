@@ -1,0 +1,119 @@
+# Chapter 13: The Raid Team
+
+The lounge smelled like old carpet and stale coffee. A few students glanced up from their phones, then went back to ignoring the world.
+
+Thorne's head lifted, one brown eye cracking open. "New cuddle-buddy?" he rumbled.
+
+Benji spun in his seat, quills rattling. "Human? No way." His eyes bounced between Cody and Lukas. "For real?"
+
+Lukas stepped between them. "Cody, meet the raid team. Guys, meet the guy who'll fry your noodles if you glitch his sleep cycle."
+
+Cody jumped in before Lukas could say more. Play it cool. He looked at Thorne and smiled. "No cuddling here. But if you're offering, my door's open."
+
+He glanced at the hedgehog. Fitting that a gamer was a hedgehog in this world. "And you, Sonic. You owe this hairless ape a new pair of fucking tastebuds."
+
+Thorne's laugh shook the couch. "Bold for a two-leg. Keep talking like that, you'll earn the good blanket."
+
+Benji yanked his headset down around his neck. "Sonic? Original. And I only torch tastebuds on Tuesdays. Today's discount day."
+
+Lukas folded his arms, ears flicking. "See? No stampede. You're officially cleared for 3 a.m. vending runs and bathroom sprints."
+
+Cody nodded. "Figured Lukas should introduce me before I stumble into the bathroom at 3 a.m."
+
+Thorne snorted. "Appreciate the courtesy. Usually it's Benji barging in at zero-dark-thirty yelling about lag."
+
+Benji flipped a middle claw without looking up from his laptop. "Stats don't lie, fur-face."
+
+Lukas jerked his thumb toward the ceiling. "Cody's crashing on my couch upstairs. Be cool, or I'll make you both run laps in full pads."
+
+Thorne tilted his head. "Crashing how long? We talking weekend or semester?"
+
+"Still figuring that out," Cody said. "But I'm not going anywhere yet."
+
+Lukas's ears pricked. "Yet's a short word. You'll know when you know."
+
+"Beats the alternative."
+
+Lukas tossed a throw pillow at him. "Welcome to the circus."
+
+Cody grinned at Benji. "As long as Sonic here doesn't decide to kill me with his habanero sauce again, we're good." He glanced around the lounge. "So what do you guys do for fun around here?"
+
+Benji snickered. "Tuesday night. Sigma Tau's basement, password's 'quills.' Bring an asbestos tongue."
+
+Thorne stretched, claws flexing. "Or stay here, skip the jungle juice, watch me bench the fridge."
+
+Lukas shrugged. "Your call, rookie."
+
+"All I've got is a smart mouth and no funds. Fridge show sounds good."
+
+Lukas arched a brow. "We'll spot you till campus payroll catches up. Consider it an advance on future bad jokes."
+
+"Bad jokes, eh?" Cody turned to Benji. "Hey Sonic. Two toothpicks are strolling through the forest when they see a hedgehog roll by. Says one toothpick to the other: 'I didn't know there was a bus.'"
+
+Benji groaned loud enough to rattle his headset. "Bus joke? Dude, I'm a hedgehog, not public transit."
+
+Thorne's muzzle split in a lazy grin. "Keep firing, Cody. Eventually one'll land."
+
+Lukas cuffed Cody's shoulder. "Save the ammo for Sigma Tau."
+
+"Aw, come on. Just call it rent paid in advance."
+
+"Rent accepted. Barely." Lukas flicked an ear toward the kitchenette in the corner. Microwave, mini fridge, a toaster oven that had seen better days. "Pizza rolls. Thorne's on oven duty."
+
+Thorne pushed up from the couch, floorboards creaking. Benji muttered something about not letting the human near the hot sauce.
+
+Cody nudged the hedgehog. "It was a pretty good prank you pulled, even if I wasn't the intended target."
+
+Benji's spines relaxed, a tiny grin showing. "Next time I'll label the nukes. Promise."
+
+They crowded around the kitchenette. Thorne worked the toaster oven while Lukas pulled a freezer bag from the mini fridge. Twelve minutes later, steam rose off a plate of pizza rolls, cheese bubbling at the edges.
+
+"Grab three, blow first," Lukas said. He snagged one, pinched it between his fangs. "Or you'll torch your tongue."
+
+"Lukas, we have pizza rolls in my world. I've eaten these by the bagful." Cody popped one in his mouth. The cheese hit like lava. "Ow, hot hot hot hot."
+
+Lukas barked a laugh. "Told you to blow."
+
+They ate. Thorne demolished half the plate without talking. Benji picked at his while scrolling something on his laptop. Lukas and Cody split the rest.
+
+"Thanks, man," Cody said between bites. "For everything."
+
+Lukas shoved the plate closer. "Don't get soppy on me. Payment's simple. Eat, don't die, keep the jokes coming."
+
+A few minutes passed. Cody glanced at the wall clock. "Don't you and Thorne have practice soon?"
+
+Lukas followed his gaze. 3:42. "Yeah, lift session." He stood, stretched. "Thorne's already half hibernating. I'll drag him out."
+
+He looked at Cody. "You hang here, raid the vending machines, whatever. When we get back, we'll figure out dinner."
+
+"Mess hall or keeping it in-house?"
+
+Lukas's ears went flat for a half-second. "Mess hall's chili night. Hockey players arm-wrestling in the aisle and Rumi yelling about protein." He shook his head. "I vote we stay in."
+
+*There it is again. That tension when Rumi comes up.*
+
+Cody noted it but didn't push. "Works for me."
+
+"When your path crosses his, it'll happen. I'll be there." Lukas tapped the armrest. "Keep your head down till then. Rumi's loud, not sharp. We'll be fine."
+
+Cody gave him a thumbs up as he and Thorne headed for the door. "See ya later, bud."
+
+Benji snapped his laptop shut and tucked it under his arm. "I'm out too. Got a raid in twenty and my real rig's upstairs." He pointed a claw at Cody. "Don't touch my energy drinks in the fridge. I counted them."
+
+Lukas hooked his gym bag, tail flicking. "Later, human." He paused at the door. "If the couch eats you, scream. Thorne'll think it's cardio."
+
+The door swung shut. Cody was alone in the lounge.
+
+He sank into the couch, still warm from Thorne. The TV murmured sports highlights. A vending machine hummed in the corner.
+
+Three days ago he'd been in a dead-end apartment with a father who didn't notice him. Now he had a wolf who bought him jackets, a hedgehog who'd already pranked him, and a bear who offered cuddles like handshakes.
+
+Weird. Good weird.
+
+He glanced at the window. Late afternoon light slanted through the blinds. Somewhere out there, the admin building loomed. Somewhere out there, someone might be watching.
+
+*Or maybe you're just paranoid.*
+
+He grabbed the remote and turned up the volume on the game.
+
+---

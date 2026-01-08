@@ -1,0 +1,193 @@
+# Chapter 12: New Threads
+
+They headed back the way they came, footsteps echoing off concrete. Neither of them said much. Didn't need to. The tunnel had taken enough words for one day.
+
+When they reached the ladder, Cody looked up at the hatch. Daylight leaked around the edges.
+
+"Alright, tour guide," he said. "Tour's over? Ready to hit the campus store?"
+
+"Store's upstairs in the union. They've got stuff that doesn't smell like stadium mold." Lukas started climbing the ladder, boots ringing against the rungs. "Caffeine first, shopping second. Then we figure out how to keep you from swimming in my laundry."
+
+"Both sound great right now, bud. Need a pick-me-up after the adrenaline crash of almost getting skinned alive."
+
+"Skin's still on. Adrenaline's just pouting." Lukas hauled him up the last step. Cold air hit them both.
+
+Cody climbed out the hatch and tugged at his collar. The afternoon air felt warmer than the tunnels, but not by much. Late October didn't mess around. "No squeaking around a bull. Got it. Good thing I left my mousey tendencies back in my world."
+
+"Mice don't last long here anyway." Lukas tugged his collar straight, claws catching a loose thread. "You're bigger prey now. Walk like it."
+
+"I'd prefer to be a predator, but I get where you're going with this."
+
+"Predator's a mindset, not a jaw size." Lukas tapped his chest with the back of his knuckles. "Square those shoulders. Quit checking exits. Own the space. Bull smells hesitation, not species."
+
+"Stand tall?" Cody let out a breath. "Been a while since I've done that, bud."
+
+"Yeah. Feet planted, chin up. Like you're sizing the room instead of asking permission." Lukas stepped behind him, palms flat on his shoulder blades, and pushed them back until his spine straightened. "There. Now breathe through it. Let the ribs show you're not running."
+
+Cody planted his feet. Forced his chin up. When Lukas's palms hit his back, something clicked. Contact. Warm and deliberate. Another person actually touching him. He hadn't felt that in a couple years. With the guidance, he straightened out of his usual slump and took a deep breath of cold autumn air.
+
+He felt different. Taller. Almost as tall as Lukas. More solid.
+
+Lukas's hands dropped. But not immediately. They lingered for half a second before pulling away.
+
+"Am I doing good, sensei?"
+
+"Better. You still slouch when you breathe out. Keep the chest open on the exhale." Lukas circled him, checking the line of his posture. "And quit calling me sensei before I make you do push-ups in the quad."
+
+"Noted. No sensei." Cody let the air out and actually smiled. Felt lighter for a second. He'd take it while it lasted. "How about chief?"
+
+"Chief's worse. Sounds like I herd cats." Lukas flicked an ear and started walking. "Just Lukas. And yeah, you're holding it. Now walk before the posture collapses."
+
+Cody started walking. Wasn't dragging his feet for once. Actually had a bit of pep in his step. "You should charge by the hour."
+
+"Hourly rate's one bad joke. Already collected." Lukas kept pace, tail swaying. "Save the pep for the quad. Union's a straight shot from here."
+
+And just like that, the moment passed. Big heart, rough exterior.
+
+"Right behind ya, bud."
+
+They cut across campus, Lukas steering them around the main paths again. Cody's pattern brain noted it. Third time today. Always the side routes, the covered walkways, the angles that kept them out of direct sight lines.
+
+Halfway there, Cody spoke up.
+
+"Hey Lukas, what did the wolf say after a fun party?"
+
+Lukas cut him a glance, ears twitching. "Next time bring a mop." Deadpan, but the corner of his muzzle tugged. "That the punchline you wanted, or you holding out for a howl?"
+
+"Close. He had a howling good time."
+
+Lukas groaned, tail thumping the pavement. "That's felony wordplay. Ten yards and loss of dignity."
+
+"And how does one lose his dignity?"
+
+"State game, senior year. Ran the wrong route, got blindsided, helmet flew into the marching band." Lukas snorted. "Spent the next play face-down in a tuba. Highlight reel still circulates at parties."
+
+Cody snorted. "At least it'll be remembered. Poor tuba player."
+
+"Kid still flinches every time he hears pads hit." Lukas angled his shoulder to block a few stares from passing students. "Dignity's overrated. Scars make better stories."
+
+"Comedy and tragedy. Both have their place."
+
+"Comedy needs a straight man. Guess who drew the short straw."
+
+The Student Union sat ahead, a big brick building past a row of evergreens. Students flowed in and out of the main doors, voices carrying in the cold.
+
+"Head up," Lukas said. "Walk like you own the pavement."
+
+They pushed through the entrance and hit the first floor. Cafeteria noise rose up around them. Trays clattering, conversations stacking, the smell of bacon and coffee and something sweet. Long tables with attached benches filled the middle of the space, scuffed from years of use. To the right, a lounge area with beat-up couches around a flatscreen showing sports highlights. An old arcade cabinet blinked in the corner. A vending machine hummed against the far wall. Cody clocked the security camera above the main entrance. Another one near the food stations. A third covering the lounge area.
+
+*Lots of eyes in here.*
+
+Lukas steered them toward the vending machine first, positioning them with their backs to the wall. "Caffeine, then clothes. Priorities."
+
+He thumbed the machine. Two cups clattered down. "Sugar or black?"
+
+"Black, bud. Like how I like my men."
+
+Lukas choked on steam, ears flattening. "Christ. Warn a guy before you weaponize caffeine." He slid the cup over, cheeks hot under his fur.
+
+Cody grinned and took a sip. The caffeine started kicking the crash out of his system. "Sorry. Couldn't resist."
+
+Lukas snorted. "Gem would've said that with a straight face and then asked why my ears were doing this." He took a long sip.
+
+"It's a shame. World needs a good laugh every now and then."
+
+"Yeah, well. Laughs are hard to come by." Lukas crushed his cup and tossed it at the trash. Rim shot. "You've got a decent stash, though. Don't spend it all on vending sludge."
+
+Cody chuckled. "A coffee for a joke. Fair trade."
+
+"Store's open till four. Plenty of time." Lukas nodded toward a stairwell at the back. "Keep the jokes coming. Might need them if Rumi's prowling."
+
+"Ah, so the bull does have a weakness. Noted, bud."
+
+"Only weakness is volume. Dude's allergic to silence." Lukas started walking. "Mock the horns and he forgets how to charge. Just don't do it while he's within trampling range."
+
+Cody finished his cup, tossed it, and followed. "Alright. Let's do this."
+
+"Stick close, keep your head down. Crowd's thick and curiosity's rabid."
+
+They climbed and stepped onto the second floor. The Timberwood University crest was set right into the floor, deep green and black, a snarling badger at the center. The store spread out beyond it, cleaner and quieter than downstairs. Racks of clothes lined the walls. Shelves of school supplies in neat rows. Banners and signage everywhere in the university colors.
+
+Different smell up here. New clothes and paper. No food. Soft background music from somewhere.
+
+Checkout counter right near the entrance, manned by a sleepy-looking raccoon scrolling through something on the register.
+
+Lukas flicked through the racks and pulled out a canvas jacket in charcoal gray. Simple, no big logos, just a small Timberwood crest stitched on the chest. Earth tones. Wouldn't scream tourist.
+
+"Try this. Hides stains and stares." He tossed it over. "Changing room's back left. Two minutes, then we're gone."
+
+Cody caught the jacket and headed for the dressing rooms, trying not to draw attention. Couldn't tell from the pictures on the doors which was which. He picked one and shut it behind him.
+
+The jacket fit. Not too tight, not swimming in it. The weight felt solid. Real. He ran his fingers down the front, feeling the texture. Canvas, a little rough, the kind of thing that would break in nice over time. Color was right too. Warm gray, almost brown in certain light.
+
+His style.
+
+He stepped out.
+
+"What do you think, bud?"
+
+Lukas looked him over. His eyes moved from shoulders to hem, taking in the fit. He nodded slowly.
+
+"Fits. Like you've worn it since freshman year." He pushed off the rack he'd been leaning against. "Keep it on. Tags tuck easy." He nodded toward the registers. "Quick pay, quicker exit. Crowd's thickening downstairs."
+
+Cody followed him to the register. The raccoon rang them up without much interest, barely glancing at his face.
+
+Back outside, the cold hit again, but the jacket did its job. Cody could actually feel his arms.
+
+"Thanks, bud. The moment I get any currency, you're at the top of the list."
+
+Lukas shrugged, pocketing the receipt. "List's short. Keep it that way." Sun was lower now, chill sharpening. "Consider it rent for the couch and bad jokes."
+
+"Aw, Lukas. Don't hurt my feelings like that."
+
+Lukas snorted, claws clicking on the pavement. "Feelings bruise easy. Good thing you've got layers now." He bumped Cody's shoulder. "Keep cracking jokes."
+
+"Jokes will come. I'll save the good ones."
+
+"Smart."
+
+Cody handed him the old borrowed shirt.
+
+"Thanks for the loaner, bud. Now I don't have to worry about entering a Mr. Timberwood contest every time I lift my arms." He paused. "You got classes, or do you want to introduce me to your floormates? Might be awkward if a hairless ape walks in on a middle-of-the-night bathroom run."
+
+Lukas stuffed the shirt into his pack. "Practice is at four. Plenty of time." He angled them toward the quad. "Benji and Thorne are floormates, not roommates. But they're usually in the common lounge this time of day. Thorne naps between classes. Benji games between everything."
+
+"True, but you said humans are rare here. I want to be friendly, not gawked at. If I'm staying, might as well do it right. What's there to hide?"
+
+Lukas slowed, ears flattening. "Not hiding. Buffering. You're raw footage. I'm giving them the edited cut." He exhaled. "Benji'll meme you in five seconds. Thorne'll hug you like a bear trap. Let me walk you in, set the tone. Then you can raid the vending machines at 3 a.m. without starting a stampede."
+
+"See, now we're talking. Would be awkward to walk into a bathroom with one of your floormates' wang out without proper introductions."
+
+Lukas choked on a laugh, tail lashing. "Thorne's shameless. You'll meet him in boxers eventually. Consider yourself warned."
+
+They cut back across the quad, the late afternoon light turning everything gold and orange. The dorm building sat on the far side, five stories of weathered brick with narrow windows. Utilitarian. The kind of place that looked like it had seen things and kept quiet about them.
+
+As they approached, Cody caught movement in a window on the third floor of the admin building across the way. A shape, there and gone. Could have been anyone.
+
+*Or could have been watching.*
+
+He filed it away and followed Lukas through the side door.
+
+Inside, the air smelled like dust and cleaning products and fur. A bulletin board covered in flyers lined one wall. The elevator had an OUT OF ORDER sign that looked permanent.
+
+"Lounge is through here." Lukas nodded toward a doorway on the right.
+
+The common lounge was what you'd expect. Beat-up couches and armchairs arranged around a flatscreen mounted on the wall. Vending machines humming in the corner. Worn carpet that had seen better decades. A few students scattered around, mostly ignoring each other.
+
+And there, taking up most of one couch, was a massive brown bear in a Timberwood hoodie, eyes closed, arms crossed over his chest. Next to him, a hedgehog with a gaming laptop balanced on his knees, headset on, fingers flying across the keyboard.
+
+Lukas walked over and tapped the hedgehog's shoulder. "Benji. Pause."
+
+The hedgehog looked up, annoyed, then saw Cody and froze.
+
+"Thorne." Lukas nudged the bear's leg with his boot. "Wake up. Got someone you need to meet."
+
+The bear's eyes cracked open. He looked at Cody. Blinked. Sat up slowly, the couch groaning under him.
+
+"Handle with manners," Lukas said. "No cameras. No memes. Got it?"
+
+Cody stepped forward. Hedgehog staring. Bear staring. The whole lounge suddenly felt very quiet.
+
+"Erm, hi guys. Name's Cody."
+
+---

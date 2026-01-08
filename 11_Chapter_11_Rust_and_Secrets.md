@@ -1,0 +1,179 @@
+# Chapter 11: Rust and Secrets
+
+They came out the library's back stairs, footsteps bouncing off stone walls older than half the campus. The stairwell was narrow, lit by fixtures that buzzed like dying flies, and it dumped them out a side door into the cold.
+
+Late October hit like a slap. The kind of cold that found every gap in your clothes and set up camp. Cody's breath fogged in front of him as they stepped onto the main path, a wide stretch of beat-up brick cutting through the middle of campus. The quad spread out in front of them, brown and dead, crisscrossed by paths connecting the big buildings. Oak trees lined the edges, mostly bare now, a few stubborn leaves still hanging on like they hadn't gotten the memo. The ones that gave up covered the grass in soggy patches, and every few seconds the wind kicked a handful across the brick like trash in a parking lot. Students moved both ways, bundled up against the chill. A pair of rabbits hurried past with scarves wrapped up to their eyeballs, ears flat. A badger in a varsity jacket cut across the grass, leaving footprints in the frost that still clung to the shady spots. Somewhere behind them, a bell tower banged out the hour like it was mad about something.
+
+The buildings were a mix of old and new. Library behind them, all weathered stone with dead ivy climbing the east side. Ahead, some glass and steel thing that looked like administrative offices. A figure moved past one of the upper windows, paused, seemed to look down at the quad.
+
+Cody's pattern brain filed it. *Probably nothing.*
+
+And past that, half-hidden by a row of evergreens, the dining hall.
+
+"Caf's just past the quad," Lukas said, steering them onto a smaller path that curved around a fountain. The fountain was drained for the season, just a big empty bowl. "Still slinging eggs this late. And if Rumi's there, let me do the talking. He thinks humans are chew toys."
+
+Cody followed, hands shoved in his pockets. "I'm still trying to figure out if you're telling the truth or fucking with me."
+
+"Bit of both." Lukas flashed a fang, then dialed it back. "Keeps the blood moving. Rumi's real, and he's an ass. Stick close, mouth shut, you'll keep your skin."
+
+"You know, humans do have a thing called overactive imaginations."
+
+"Imagination's a luxury. Here, paranoia's survival." Lukas pushed through the cafeteria doors, and the noise hit first.
+
+The place was loud. Conversations stacked on top of each other, mixed with clattering trays and scraping chairs. Somewhere near the back, a group busted out laughing, the sound bouncing off the high ceilings before getting swallowed by the rest of the noise. The smell came next: bacon, coffee, something sweet that might've been pancakes, all of it riding a wave of steam from the food stations. The cafeteria was bigger than Cody expected. Long tables with attached benches filled the middle, the kind you'd find in any college dining hall, scuffed and beat up from years of use. Smaller round tables with mismatched chairs sat near the windows, morning light coming through glass that needed a serious cleaning. Along the far wall, a lounge area had some beat-up couches arranged around a big flatscreen showing sports highlights. In the corner past that, an old arcade cabinet blinked and beeped to itself like it was lonely. Students filled almost every seat. Wolves and foxes, bears and rabbits, a cluster of birds at one table picking at seeds and fruit. A massive moose sat alone reading a tablet, antlers so wide Cody wondered how the hell he got through the door. Near the food line, some otters shoved each other around, laughing in high chittery voices.
+
+Cody's eyes found the security camera in the corner. Small, mounted high, lens pointed at the main seating area. He traced its arc. Their booth would be just outside it.
+
+*Lukas picked that spot on purpose.*
+
+"Table by the window," Lukas said, nodding toward a corner booth half-hidden by a support column. "Sit. I'll grab trays."
+
+Cody found the booth and slid in, pressing his back against the wall so he could see the whole room. He kept his head down but his eyes moved, taking it all in. A world of walking, talking animals eating breakfast like it was totally normal. Because for them, it was.
+
+The smell of fresh bacon filled his nose. He tried not to think too hard about the pigs.
+
+Lukas came back with two loaded plates and set one down in front of him. Scrambled eggs, strips of bacon, toast. Normal breakfast. Weirdly normal.
+
+"And where is this Rumi?" Cody asked, tugging at his collar. "So I know who to avoid."
+
+Lukas jerked his muzzle toward the far line. "Twelve o'clock. Horns first."
+
+Cody looked. A massive bull stood near the food stations, shoulders wide enough to block a doorway, laughing loud at something one of his buddies said. A gold ring glinted in his nostril. He moved like he owned the place, and from the way everyone else gave him room, maybe he did.
+
+"Not gonna lie," Cody muttered, "your human buddy is about to shit his pants."
+
+Lukas slid the tray between them, blocking Cody's view of the bull. "Breathe through your mouth. He can't pick that up." His voice dropped. "You're with me, remember? My shadow's bigger than his horns."
+
+Cody looked down at the eggs. Warm, fresh, perfectly scrambled. His stomach growled loud enough to hear. "I swear, if I stop to think about how a chicken in this world made these eggs, I'll lose my mind. But I'm hungry enough to forget for a minute."
+
+"Chickens here unionized. Eggs come with dental." Lukas nudged the bacon closer. "Eat. Protein keeps the shakes off."
+
+Cody grabbed a forkful of eggs and shoved it in his mouth. They tasted normal. Better than normal, actually. He was so focused on eating that he almost missed Lukas's ears swiveling, tracking something across the room.
+
+"Finish fast," Lukas said, voice low. "Rumi's line is moving."
+
+Cody didn't need to be told twice. He shoveled eggs into his mouth, barely chewing. If Lukas was this tense, there was a reason. He grabbed a strip of bacon and bit down.
+
+Lukas slid his own untouched bacon onto Cody's plate. "Indigestion beats getting gored. Chew, don't inhale."
+
+The bull's laugh got closer. Hooves on tile.
+
+Lukas kicked Cody's shin under the table.
+
+"Ow, fuck."
+
+"Eyes on me." Lukas leaned in, voice a low growl. "He's three tables out. Laugh at my joke. Now."
+
+Cody forced a grin. "Oh, haha, fuck Lukas, that's a good one."
+
+"Keep it sloppy. Real tears help."
+
+Lukas slung an arm over Cody's chair, blocking the view. Cody kept his head down, forcing another laugh, and heard the heavy clop of hooves pass behind him. Nostrils flared once, a snort of air, and then the sound moved on. The swing door banged shut.
+
+Lukas let out a breath. "Breathe. You just lived through breakfast."
+
+"Did you have to kick my shin that hard?"
+
+"Could've bitten. Shin heals faster." Lukas nudged his leg under the table, gentler this time. "You're still sitting up, still chewing. That's a win."
+
+Something in Lukas's jaw stayed tight even after Rumi was gone. His ears hadn't fully relaxed. Cody noticed but didn't push.
+
+*There's history there. More than just "he's an ass."*
+
+Cody finished the last strip of bacon and pushed his plate away. "Okay. Next stop. And I hope it doesn't have anything life-threatening attached to it."
+
+Lukas stacked the trays. "Bleachers next. Tunnels under the stadium. Echoes like a tomb, but no horns, no crowds." His claws brushed Cody's elbow as they stood. "Just us and rust. You did good, stray. Didn't bolt, didn't puke. That's half the war."
+
+"Took a lot of energy to not do either." Cody followed him toward the exit. "Rust I can deal with."
+
+Outside, the late October air hit clean and sharp, smelling like dead leaves and woodsmoke from somewhere far off. The sky was pale gray, couldn't decide between clouds and sun, and a thin wind cut through Cody's borrowed shirt like it wasn't there. He shoved his hands in his pockets and wished he'd grabbed something warmer.
+
+The campus changed as they walked. Manicured lawns gave way to wider paths lined with oaks dropping the last of their leaves. Students moved in groups, breath fogging, bundled in jackets and scarves. A few leaves skittered across the concrete like they were late for class.
+
+Then the stadium showed up.
+
+It sat at the edge of campus like a sleeping giant, a massive bowl of concrete and old steel that made everything else look small. The outside walls were painted in Timberwood colors, deep green and black, though the paint had faded in spots, showing the gray underneath. Banners hung between the light towers, snapping in the wind, each one showing a badger mid-snarl. A marquee near the main entrance read HOME OF THE TIMBERWOOD BADGERS in letters you could see from across the quad.
+
+"That's... big," Cody said.
+
+"Holds forty thousand on a good day." Lukas steered them away from the main gates, toward a service road that curved around back. "We're not going in the front. Too many eyes, too many questions."
+
+The service road was cracked asphalt lined with chain-link fence, the kind of forgotten space behind every big building. Dumpsters in neat rows. A few maintenance carts parked near a loading dock. The pretty front face of the stadium didn't extend back here.
+
+"Quieter back here." Lukas pulled keys from his pocket and unlocked a rusted gate set into the fence. "Tunnels smell like wet iron and old wins. Safer than the cafeteria."
+
+They slipped through. The gate groaned shut behind them.
+
+"Ghosts, huh?" Cody asked as they walked toward a heavy metal door in the stadium's foundation. "We talking phantom ghosts or crushed dreams?"
+
+"Both." Lukas's voice went quieter. "This stadium's where I blew my knee sophomore year. Still hear the pop on quiet nights." He pulled the door open. Stale air rushed out, cold and damp. "Come on."
+
+The tunnel ate them whole.
+
+Inside, the temperature dropped like a rock. The walls were bare concrete, stained from decades of water and neglect. Pipes ran along the ceiling, some wrapped in insulation that was peeling off, others exposed and sweating. The only light came from caged bulbs spaced too far apart, throwing pools of yellow with long dark stretches in between.
+
+Their footsteps echoed. Cody's sneakers and Lukas's boots playing a stuttered beat against the concrete floor.
+
+Cody ducked under a low-hanging pipe. "Popped your knee. Most guys I know don't have the guts to put the helmet back on after something like that."
+
+"Helmet stayed on. Leg didn't." Lukas tested the first rung of a service ladder bolted to the wall. It whined but held. "Coach said walk it off, so I crawled to the sideline and kept calling plays." He tapped a spot behind his fur where a scar had to be hiding. "Stubbornness gets you further than strength."
+
+"I know that feeling," Cody said quietly.
+
+Lukas glanced sideways, ears tilting. "Yeah? Tell me your crawl story sometime. When tunnels aren't listening." He started climbing. "Step light. Metal sings if you put too much weight on it."
+
+The ladder led to a catwalk hanging above the main tunnel, a narrow grate walkway that swayed a little under their weight. Below, the passage stretched into black, steel support beams catching what little light made it down. The air smelled like wet iron and old concrete, with something underneath like the stadium itself was slowly rotting.
+
+Cody grabbed the railing and tried not to look down.
+
+"Talk normal," Lukas said as they went down a set of grated steps on the other side. "Let the dark carry it back. Tell me something the stadium hasn't heard."
+
+Cody thought for a second. Then he cupped his hands around his mouth and yelled into the darkness.
+
+"Nerds rule!"
+
+The tunnel threw it back at them, a chorus of mocking echoes. NERRRDS ru-ule, ru-ule, ru-ule...
+
+Lukas barked a laugh, ears swiveling. "Bold claim for a guy in borrowed clothes." He cuffed Cody's shoulder, claws gentle. "Stadium's keeping that one. Filed under human heresy."
+
+"You told me to say something the stadium hadn't heard." Cody grinned. "Got you smiling, though, right?"
+
+"Smirk counts." Lukas flicked his sleeve. "Keep talking. Dark likes new stories."
+
+Cody paused. Then: "One time, this defensive lineman and I hooked up under the bleachers. Back home. Took everything in me not to make a sound." He shrugged. "Good thing he wasn't a very good lover."
+
+A low whistle slipped out of Lukas, echoing dirty through the tunnel. "Stadium's blushing." He bumped Cody with a hip. "You left a ghost of your own."
+
+"Ghosts always haunt me," Cody said, quieter now. "Just another scar on the pile."
+
+Lukas leaned against the wall, fur brushing cold steel. "Scars stack. But you're still walking, still cracking jokes." His voice dropped. "Ghosts hate a moving target."
+
+"Sound advice." Cody turned to face him. "What about you? Any stories for the walls?"
+
+Lukas dragged a claw across a flaking beam, leaving a pale scratch in the rust. "Same tunnel, different year. State game, four seconds left. I told the freshman QB to audible. He froze. I got blindsided." He tapped the metal, and somewhere in the dark, an old echo answered. "Lost the ring, kept the limp. Stadium remembers the hit more than the trophy."
+
+"Sorry it happened." Cody's voice was real. "Like I said, most guys don't pick up the helmet again after that. You're a tough wolf."
+
+"Tough's just another word for too dumb to quit." Lukas shrugged, ears flicking. "But I still suit up. Field's the only place the knee shuts up." He looked at Cody. "You keep walking too, even with your ghosts. That's what counts."
+
+Cody was quiet for a second. "I can't get rid of ghosts, Lukas. They like to stick around, especially at night." He swallowed. "But I'll say this. They've been quiet since I got here."
+
+He almost said *since I met you.* But he stopped himself.
+
+Lukas let the silence hang, just the drip of water between them.
+
+"Then maybe the hollow's doing something right." His voice was low. "Echoes sound different when you're not the only voice."
+
+"I've been walking the road mostly alone," Cody admitted. "Tired traveler gets tired of heavy ghosts. I guess that's one of the reasons I'm not ready to leave yet."
+
+Lukas studied him, the tunnel light cutting across his face. "Then don't." He reached out, thumb brushing the edge of Cody's borrowed sleeve. "You're not on the road tonight. You're here. With me."
+
+Something in Cody's chest let go. The bags under his eyes felt lighter, just for a second. It took everything in him not to break down and hug the wolf right there, but he'd only just met the guy. Instead, he gave Lukas a smile. A real one. Not armor.
+
+"Thanks, bud. It means a lot."
+
+Lukas swallowed, throat tight. The smile hit him different. Real.
+
+"Don't thank me yet," he said, voice rough. "Rent's due in leftover noodles and bad jokes." He bumped Cody's shoulder, gentle. "Come on. Tunnel's heard enough secrets for one day."
+
+---

@@ -1,0 +1,385 @@
+# Chapter 14: The Strain
+
+The game on TV went to halftime. Cody didn't remember who was playing.
+
+He'd been staring at the screen for an hour, maybe longer, letting the noise fill the empty lounge. A few students had drifted in and out, grabbing snacks from the vending machines, but none of them sat down. The hairless ape in the corner was apparently enough to keep the couches clear.
+
+Fine by him. He wasn't in the mood to explain himself anyway.
+
+His phone buzzed. Lukas's number.
+
+*Practice running late. Rumi being Rumi. Back in 30.*
+
+Cody typed back: *No rush. Couch hasn't eaten me yet.*
+
+He pocketed the phone and sank deeper into the cushions. The light through the blinds had shifted from gold to gray. Evening coming on fast. That was the second time today Lukas had mentioned the bull without actually saying anything. The flat ears. The clipped sentences. The way he'd steered them around the cafeteria like he was avoiding a landmine. There's history there. More than just locker room rivalry. Cody filed it away with the rest. Camera blind spots. Side routes. The way Lukas's ears never quite relaxed when Rumi's name came up. Patterns. Always patterns.
+
+---
+
+Lukas came through forty minutes later.
+
+Cody clocked him immediately. The gait was wrong. Lukas usually moved like he owned whatever room he walked into, shoulders loose, tail swaying. Not now. Now his steps were tight, his tail hung low, barely moving. Gym bag over one shoulder, fur matted with sweat from practice. Thorne lumbered behind him, hood up, taped knuckles flexing.
+
+*Something happened.*
+
+Cody sat up. Thorne's shoulders were tight too. His eyes flicked to Cody, then away. Warning.
+
+"Hey," Cody said. "How was practice?"
+
+Lukas dropped his bag on the floor. Didn't look at him. "Fine."
+
+One word. Clipped. The kind of "fine" that meant the opposite.
+
+Thorne caught Cody's eye and gave a small shake of his head. *Don't push.*
+
+Cody pushed anyway. "You said Rumi was being Rumi. What happened?"
+
+Lukas's ears flattened. "Nothing."
+
+"Didn't sound like nothing."
+
+"Drop it."
+
+The words came out harder than anything Lukas had said to him before. Quiet and cold. Like a door slamming shut.
+
+Cody felt the temperature in the room change. Thorne shifted his weight, uncomfortable.
+
+"Okay," Cody said slowly. "I was just asking."
+
+Lukas finally looked at him. His eyes were different. Distant. Guarded in a way they hadn't been since the first night.
+
+"You've been here three days," Lukas said. "You don't know anything about this place. About him. About any of it." He grabbed his bag again. "So maybe stop asking questions you can't understand the answers to."
+
+The words landed like a slap.
+
+A spark caught somewhere deep. The kind that used to get him in trouble. The kind that felt good for three seconds and cost him everything. His jaw clenched, pressure coiling tight behind his ribs.
+
+He swallowed it. Shoved it down like he always did. But it felt heavier this time. Harder to cage. His hands were shaking, and not from fear.
+
+Three days. That was all he was. A tourist. A stray. Someone who didn't belong and never would.
+
+He'd known it, somewhere in the back of his head. But hearing Lukas say it out loud was different.
+
+Something behind his ribs wanted him to stand up, get loud, make this hurt the way it was hurting him.
+
+Cody took a breath. Held it. Let it out slow.
+
+"Got it." The word scraped out. Flat because he made it flat. "Sorry for asking."
+
+Lukas's muzzle went tight. For a second, something flickered in his eyes. Regret, maybe. But he didn't take it back.
+
+"I need to shower," he said. "Thorne, you good?"
+
+Thorne nodded slowly, eyes still on Cody. "Yeah. Go ahead."
+
+Lukas disappeared up the stairs without another word.
+
+The lounge got very quiet.
+
+---
+
+Thorne settled onto the couch across from Cody, the frame groaning under his weight. He didn't say anything for a long moment. Just sat there, watching Cody with those calm brown eyes.
+
+"He didn't mean it," Thorne said finally. His voice was low, steady. "Rumi gets under his skin. Always has."
+
+"I noticed." Cody stared at the TV, not really seeing it. "Doesn't matter."
+
+"It matters." Thorne leaned forward, elbows on his knees. "Lukas doesn't snap like that. Not at people he cares about."
+
+"Maybe he doesn't care as much as you think."
+
+The words came out before Cody could stop them. Bitter. Defensive. The old walls going back up, brick by brick.
+
+*A week.* That's what Gem said. A week before the resonance faded. He could still leave. Find Gem, get another pinch of that silver dust, and be back in his dead-end apartment by morning.
+
+*Home.* The word tasted like a joke. Back to the father who wouldn't notice he'd been gone. Back to being invisible.
+
+But at least invisible didn't hurt like this.
+
+*Three days.* He'd let himself hope in three days. Stupid. He knew better. People always showed you who they really were eventually. You just had to wait long enough.
+
+Thorne was quiet for a beat. Then he stood up. "Stay here. I'm going to get Gem."
+
+His footsteps faded down the hall. Cody was alone again.
+
+---
+
+Gem showed up ten minutes later, mechanical pencil tucked behind one ear, tail flicking with that sharp, assessing energy Cody was starting to recognize.
+
+She stayed standing, looking at him.
+
+"Thorne said there was a situation."
+
+"There's no situation." Cody kept his eyes on the TV. "Lukas had a bad day. I asked the wrong question. End of story."
+
+Gem's ears twitched. She walked over and sat on the arm of the couch, close enough that her tail brushed his shoulder.
+
+"What did he say?"
+
+"Nothing."
+
+"Cody."
+
+Something in her voice made him look up. She wasn't pushing. She was just... there. Waiting.
+
+"He said I've been here three days." Cody's teeth pressed together. "That I don't know anything about this place. About Rumi. About any of it."
+
+Gem's pencil started tapping against her knee. "And that hurt."
+
+"It's true." Cody shrugged, aiming for casual and missing by a mile. "I am a tourist. I don't know anything. I'm just some stray he picked up because he felt sorry for me."
+
+"Is that what you think?"
+
+"It's what he said."
+
+Gem was quiet for a moment. Her tail had gone still.
+
+"Lukas and Rumi were best friends," she said. "Since they were six years old."
+
+Cody blinked. That wasn't what he'd expected.
+
+"What?"
+
+"Grew up on the same street. Played on the same peewee teams. Lukas was the quiet one, Rumi was the loud one. They balanced each other out." Gem's voice was matter-of-fact, but there was something underneath it. "Came to Timberwood together. Freshman year, they were inseparable."
+
+"What happened?"
+
+"Rumi happened." Gem's pencil stopped tapping. "He got popular. Got recruited by the right crowds. Started caring more about status than... anything else. Lukas didn't fit the image anymore. Too quiet. Too steady. Not flashy enough."
+
+Cody felt something shift in his chest. "Rumi ditched him."
+
+"Worse. He pretended they'd never been close. Started calling him 'that wolf from back home' like they were casual acquaintances instead of brothers." Gem's ears flattened slightly. "Lukas doesn't talk about it. Ever. But it broke something in him."
+
+The lounge felt smaller suddenly. The TV noise faded to static.
+
+"So when Rumi gets under his skin..."
+
+"He lashes out at whoever's closest." Gem looked at him. "Not because he means it. Because it's the only way he knows how to handle the hurt."
+
+Cody was quiet for a long moment. The anger he'd been nursing started to drain away, replaced by something heavier.
+
+"I've seen what happens when you don't catch things in time," Gem said, her voice dropping. "People drift. Wounds fester. By the time you notice, it's too late to fix. Don't let this be one of those times."
+
+She stood up to leave, then paused.
+
+"He'll come find you. Give him twenty minutes to stop being an idiot."
+
+Her footsteps faded toward the stairs.
+
+---
+
+Lukas came down eighteen minutes later.
+
+Cody was still on the couch, staring at the TV without seeing it. He heard the footsteps on the stairs, the hesitation at the bottom, the slow approach across the worn carpet.
+
+Lukas stopped a few feet away. His fur was dry now, clothes changed, but his ears were still flat against his skull.
+
+"Can I sit?"
+
+Cody just shrugged. Didn't look at him.
+
+Lukas winced at that. He sat down anyway, leaving space between them.
+
+For a long moment, neither of them said anything. The TV droned on. Some commercial about car insurance.
+
+"I was wrong," Lukas said finally. His voice was rough. "What I said. All of it."
+
+Cody didn't respond.
+
+"Rumi got in my head at practice. Said some things." Lukas's claws dug into the armrest. "About you. About me picking up strays for attention. About how I always need someone to fix so I feel important."
+
+The words hung there.
+
+"And you believed him?"
+
+"No." Lukas exhaled hard. "But he knows where to hit. He always has." He turned to look at Cody, and his eyes were different now. Open. Vulnerable in a way Cody hadn't seen before. "We grew up together. Best friends since we were six. I thought he'd be my brother forever."
+
+"Gem told me."
+
+Lukas nodded slowly. "Then you know. He chose status over me. Over everything we had." His voice cracked slightly. "And I've never... I don't know how to talk about it. So when he pokes at it, I just... shut down. Push people away before they can do what he did."
+
+Cody finally looked at him. Really looked.
+
+The big wolf linebacker. The guy who'd bought him a jacket and fought off stares and made sure he had a place to sleep. Sitting there with his tail tucked and his ears flat, looking like a kid who'd just lost his best friend all over again.
+
+Part of Cody wanted to let him sit there. Let him stew. See how it felt to be the one hurting for once.
+
+The thing behind his ribs liked that idea.
+
+But Lukas wasn't his father. Wasn't the friends who'd ghosted him after the assault. He was just a guy who'd been cut open by someone he thought would always have his back, and bled on the nearest person.
+
+Cody knew what that felt like.
+
+"You're not pushing me away," he said. The words scraped out, rough and reluctant. "I'm still here."
+
+Lukas's breath caught. For a long moment he didn't say anything.
+
+"I'm sorry." His voice broke on it. "I didn't mean any of it. You're not just some tourist. You're not a stray I picked up out of pity." He swallowed hard, claws digging into his own knee. "You're... you matter. Okay? You matter to me."
+
+The thing behind Cody's ribs wanted to call bullshit. Wanted to push back, test it, make Lukas prove it.
+
+He didn't.
+
+"I know what it's like," Cody said. Each word a small surrender. "I had a best friend too. Only one." He finally met Lukas's eyes. "Something happened. Something I did. And after that, he pretended I didn't exist. Like we'd never known each other." He swallowed. "Everyone else I understood. But him? That one broke something. So yeah. I get it. Doesn't mean it didn't hurt."
+
+"I know." Lukas's voice was barely above a whisper. "I know it hurt."
+
+Silence. The TV murmured in the background, neither of them listening.
+
+"Something you did?" Lukas's voice was careful. Leaving the door open.
+
+Cody opened his mouth to deflect. To change the subject. To shove it back down where it couldn't breathe.
+
+But he was tired. So tired of carrying it alone.
+
+"Yeah." His voice came out rough. "Something I did. And I lost everything because of it." He blinked hard, swallowing against the tightness in his throat. "I'm not ready to talk about it. But... yeah. It's there."
+
+Lukas was quiet for a moment. Then he shifted closer on the couch. Close enough to matter. His paw found Cody's shoulder. Heavy. Deliberate.
+
+"I don't need the details," Lukas said. "I just need you to know something." He waited until Cody looked at him. "Whatever you did? It doesn't change anything. Not for me."
+
+Cody's throat tightened.
+
+"You don't even know what it was."
+
+"Don't have to." Lukas held his gaze. "I know who you are now. That's enough."
+
+Something cracked in Cody's chest. Not the rage this time. Something older. Heavier. The grief he'd been dragging behind him like a chain for years.
+
+He let it pass through instead of shoving it down. Just this once.
+
+It hurt. But it was a clean kind of hurt. The kind that meant something was healing instead of festering.
+
+"We're both kind of messed up, huh?" Lukas said.
+
+"Probably." The corner of Cody's mouth twitched. Not quite a smile. Not yet. "But at least we're messed up together."
+
+Something in the room shifted. Still fragile. But enough.
+
+Lukas's tail gave a small wag. Just once.
+
+"Dinner?" he asked. "Thorne's ordering pizza. Extra cheese. My treat."
+
+"You already bought me a jacket."
+
+"I'll put it on your tab." Lukas squeezed his shoulder, then let go. "Come on, stray. Let's go be messed up with the rest of the pack."
+
+Cody stood up. The thing behind his ribs had finally gone quiet. Settled, like a dog that had been given a place by the fire.
+
+That was new.
+
+"Lead the way, wolfy."
+
+The nickname landed before he'd thought about it. But he didn't take it back. Lukas's ears perked up, something warm flickering behind the exhaustion.
+
+"Wolfy?"
+
+"You got a problem with it?"
+
+"Nah." Lukas bumped his shoulder as they headed for the stairs. "I've had worse."
+
+They climbed in comfortable silence, the TV fading behind them. Cody's hands had stopped shaking. His chest didn't feel like a bomb anymore.
+
+Three days ago, he would've walked out that door and never looked back. That was the pattern. Someone hurts you, you leave before they can do it again. Protect yourself. Stay small. Stay gone.
+
+But he hadn't left. He'd stayed. And Lukas had come back.
+
+Maybe that was what mattered. Not the wound. The repair.
+
+He was still figuring out if this place was home. But for the first time, he wanted to find out.
+
+---
+
+---
+
+# COLD OPEN — Between Chapter 14 and Chapter 15
+
+---
+
+## MEMORANDUM: OFFICE OF THE DEAN
+### TIMBERWOOD HOLLOW UNIVERSITY
+### CLASSIFICATION: RESTRICTED — ADMINISTRATIVE EYES ONLY
+
+• • •
+
+**DATE:** [CURRENT: Day 3 of Subject Presence]
+
+**RE:** Anomaly Incident Report TH-2024-001: Preliminary Assessment and Acquisition Recommendation
+
+**FROM:** V. Graves, Dean of Academic Affairs
+
+**TO:** [REDACTED: Security Division]
+
+• • •
+
+**SUMMARY:**
+
+Resonance signature detected approximately 48 hours ago in the northeast pine grove, approximately 200 meters from the athletic complex. Pattern consistent with Class-IV dimensional transit: full biological transfer, intact consciousness, stable vitalization. Campus security confirmed visual: human, male, early twenties, no visible trauma.
+
+This is the first viable acquisition opportunity Timberwood has documented in fourteen years.
+
+**SUBJECT PROFILE:**
+
+- **Designation:** TH-2024-001
+- **Species:** Human (Homo sapiens): CONFIRMED
+- **Estimated Age:** 19-22
+- **Physical Condition:** Ambulatory, alert, no apparent degradation
+- **Portal Resonance:** Active (see attached spectral analysis)
+- **Current Status:** Uncontained. Integrated with student population.
+
+**OBSERVATIONS:**
+
+Subject has been observed in the company of Lukas Raines (Senior, Athletic Scholarship, Football). Raines appears to have assumed a protective role. Motivation unclear. No prior connection to dimensional research. No known personal stake. Continued observation authorized.
+
+Subject has not attended classes, has not registered, and does not appear in any institutional database. He is, for all administrative purposes, a ghost.
+
+Resonance readings remain anomalously stable. Unlike previous subjects, decay has not followed expected degradation curves. This warrants immediate investigation — the window will not remain open indefinitely. Once resonance fades to baseline, subject becomes significantly less valuable for longitudinal frequency mapping.
+
+**RECOMMENDATION:**
+
+Immediate retrieval and transfer to Sublevel Research Wing for preliminary examination. Full workup to include:
+
+- Comprehensive biological sampling (tissue, marrow, cerebrospinal fluid)
+- Resonance field documentation under controlled conditions
+- Psychological intake and cognitive baseline
+- Long-term observation protocols (minimum 6-month commitment recommended)
+
+I am aware that retrieval presents logistical complications given subject's integration with the student body. However, I must stress: opportunities of this nature do not recur on convenient timelines. The last comparable subject (TH-2010-003) expired during transit before any meaningful data could be collected. The one before that (TH-1996-017) was claimed by Hartwell Institute within 48 hours of manifestation.
+
+Timberwood has waited long enough.
+
+I have authorized discreet surveillance. I am also making contact with assets within the athletic program who may prove useful in facilitating a quiet transfer.
+
+This matter should be resolved before Friday's game. Public events create complications.
+
+Further updates to follow.
+
+• • •
+
+**V. Graves**
+*Dean of Academic Affairs*
+
+*Timberwood Hollow University*
+
+• • •
+
+**ATTACHMENT A:** Spectral Resonance Analysis (3 pages)
+
+**ATTACHMENT B:** Subject Photography: Library Steps, Day 2
+
+**ATTACHMENT C:** Raines, Lukas: Student File Summary
+
+**[END MEMORANDUM]**
+
+---
+
+---
+
+# TIMBERWOOD HOLLOW — PART 2
+
+## Chapters 15-22 (The Dean Saga)
+
+**Clunky Check Complete:** 6 banned phrases fixed
+**Paragraph Consolidation:** Already properly consolidated
+
+---

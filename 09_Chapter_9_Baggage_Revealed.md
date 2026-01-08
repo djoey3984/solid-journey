@@ -1,0 +1,185 @@
+# Chapter 9: Baggage Revealed
+
+Lukas started up the deer track toward the distant glow of campus, and Cody limped after him, pins and needles still firing through his foot with every step.
+
+The walk back was quieter. Night had kicked in for real, sky full of stars he didn't recognize. Cody found himself looking up between the branches, wondering if any of them were the same as back home. Probably not. Different universe, different sky. The thought should've hit harder than it did. His foot was starting to feel normal again by the time Lukas spoke.
+
+"You'll limp, swear, then forget it by breakfast. Same as every rookie night."
+
+Cody's pattern brain caught the words. Playbook. Blitz. Rookie. He'd been noticing them all evening. "So I take it you're the captain of something on this campus. And judging by the terms you're using, football? Quarterback? Linebacker?"
+
+"Linebacker." Lukas grunted, boots crunching over frost that had started forming on the grass. "Quarterback gets the parade. I get the bruises."
+
+"Figures." Cody huffed. "You've got the look and the personality of a linebacker."
+
+Lukas snorted, breath fogging in the cold. "Look's accidental. Personality's collateral damage." He glanced sideways. "You clocked that fast for somebody who claims he doesn't watch the sport."
+
+Something tightened in Cody's chest. The question was harmless enough, but it poked at stuff he didn't like thinking about.
+
+"I used to play," he said. The words came out flatter than he meant. "High school. Wasn't bad at it, either."
+
+Lukas's ears swiveled, catching the shift. "Used to?"
+
+Cody kept his eyes on the path. The memories were right there, pushing at the edges: the stadium lights, the crowd noise, the other player's taunt hitting too close to home. The way his vision went red. The way the coaches had to drag him off.
+
+The way everyone looked at him after.
+
+"Didn't work out," he said. Short. Done. Door closed.
+
+Lukas was quiet for a few steps. Then: "Fair enough."
+
+He didn't push. Didn't pry. Just let the silence sit there, easy enough that Cody's shoulders slowly loosened up.
+
+Cody's pattern brain noted that too. Most people would have asked follow-up questions. Lukas just... let it go. Filed it away without demanding more.
+
+"Boyfriend was a defensive lineman, though," Cody added, steering toward safer ground. "After I quit. All I remember now are a few terms and the basic rules."
+
+Lukas's ears flicked, taking the redirect. "So the playbook's not completely foreign territory."
+
+"Pretty much."
+
+"Hope he treated you better than turf treats cleats." The path widened ahead of them, dorm lights starting to poke through the trees.
+
+Cody was quiet for a second. Then: "He left me for the quarterback."
+
+Lukas stopped mid-stride, paw tightening on his bag strap. His jaw worked for a second. "His loss."
+
+That was it. Two words. But the way Lukas said them, low and certain, made them land heavier than a whole speech would have.
+
+"I suppose." Cody shrugged. "Add it to the pile."
+
+Lukas started walking again. "Pile gets lighter when you stop counting." He nodded toward the lit windows ahead. "Warm water, dry socks, door that locks. Almost there."
+
+Cody shoved his hands into his jacket pockets and followed.
+
+The dorm's side door opened with a rush of warmth, like stepping in front of an open oven. Lukas held it for him. "Elevator's busted. Three flights. You want the shower first or the couch?" They climbed the stairs, Cody's calves burning by the second landing. The stairwell smelled like old concrete and that fake pine cleaner that never actually smells like pine. By the time they hit the third floor, he was breathing harder than he wanted to admit. Lukas pushed through the fire door and led him down a hallway full of identical doors. He stopped at one near the middle and unlocked it.
+
+"Home," Lukas said, pushing the door open.
+
+The place was small but it worked. Open room that doubled as kitchen and living area, the kind of setup that screamed college athlete on a budget. Counter along the left wall with a sink at one end, dorm fridge underneath. Coffee maker, portable cooktop, and microwave all lined up. Past that, a fold-out couch faced a TV on the opposite wall, maybe fifty inches, with gaming consoles underneath. Desk to the left, coffee table in the middle.
+
+Two doors at the far end of the right wall. Lukas nodded at them. "Half bath on the left if you need it. Bedroom's on the right." He dropped his bag by the couch. "Communal showers are down the hall. Four heads, no privacy, but the water's hot if you get there before Thorne."
+
+"Thorne?"
+
+"Floormate. Bear. Showers like he's trying to drown the whole building." Lukas shrugged. "You'll meet him eventually. Him and Benji both live on this floor."
+
+Cody stood in the doorway, looking around. The place was lived in but not trashed. Few dishes drying in a rack. Team jacket on a chair. Through the half-open bedroom door, he could see trophies on a shelf and a football on a stand.
+
+His pattern brain was cataloging again. The trophies said Lukas was good at what he did. The dishes in the rack said he cleaned up after himself. The gaming rig said he had a life outside football. The spare blanket already folded on the couch said he'd been expecting to offer it.
+
+*He planned for this. Before we even got back.*
+
+"Dude, it's your home. I'm good with whatever's left over."
+
+Lukas's ears went flat for a second. "You're the guest. Guests get first crack at anything that steams." He jabbed a claw toward the hallway. "Communal shower's second door on the left. Cabinet in there has towels. Take your time."
+
+"You sure? I really don't want to feel like a burden."
+
+"You're not." Lukas dropped onto the couch and stretched his legs out. "Go. Before Thorne wakes up and decides he needs a midnight soak."
+
+Cody stepped into the hallway, then turned back. "Hey, Lukas?"
+
+Lukas looked up. "Yeah?"
+
+"Thanks, man."
+
+The communal shower was exactly what Lukas said: four shower heads in an open room, no stalls, couple of empty towel racks on the wall. Cody found the cabinet, grabbed a towel, and kept it quick. Five minutes, just enough to get the cold out of his bones. Water pressure was better than he expected.
+
+He dried off, wrapped the towel around his waist, and walked back to Lukas's door.
+
+"All yours," he said, stepping inside. "Water's still hot."
+
+Lukas looked up from the couch. "Good." He stood and tossed Cody a spare shirt, soft and faded from being washed a million times. "Throw that on. Gets cold after a shower." He grabbed a towel from the cabinet by the half bath. "Back in ten."
+
+"I'm not that tired," Cody said, pulling the shirt over his head. It was a little tight across the shoulders, but warm. "My mind still has a million thoughts. Only reason I think I was able to sleep last night is portal symptoms."
+
+Lukas paused at the door. "If the thoughts get loud, headphones are on the desk. Otherwise, raid the fridge. Just save me one yogurt." The door clicked shut.
+
+Cody felt the shirt settle against his skin. He sat down heavy on the couch.
+
+*He seems like a nice dude,* Cody thought. *But is he putting on airs? Or does he think I'm some kind of curiosity?*
+
+Back in his world, Cody rarely had anyone treat him decent. Not once they got to know him. Not once they saw the parts he couldn't hide: the intensity, the weird interests, the way his brain wandered into places most people didn't follow. He tugged at the hem of the borrowed shirt.
+
+*I'm just a complete stranger. A nobody. The only thing interesting about me here is that I'm not covered in fur.*
+
+He leaned back, staring at the ceiling.
+
+*Maybe he's just being friendly. Rough around the edges, but real.* But most of the friends Cody had ever made ended up ditching him. Too intense. Too much. And it was too soon to decide about going home. He'd only met two people in this entire world, and two more he'd never even seen.
+
+Too many thoughts.
+
+The door opened and Lukas came in, towel over his shoulders, fur still damp. His eyes found Cody right away.
+
+"Still up. Good." He caught the way Cody was swimming in the borrowed shirt, the faraway look in his eyes. "Fridge is yours if you're hungry. Couch folds out when you're ready."
+
+He grabbed the spare blanket from the closet and tossed it over.
+
+Cody caught the blanket. "Can I ask you something?"
+
+Lukas dropped onto the other end of the couch. "Shoot."
+
+"Why are you being nice to me?"
+
+Lukas let out a long breath. "Because you're cold, alone, and wearing my shirt like a kid swimming in his dad's jacket." He leaned back. "And because I've been the new guy. Transfer year, only wolf on a team of bears. Someone gave me a break once. Figured I'd pass it on."
+
+"Yeah, but Lukas, back in my world, nicety always came with a price. Sometimes too steep." Cody pulled the blanket across his lap. "I've had friends bail on me because I was always too much. Too intense. Too weird. The kind of guy people hang out with until they realize I'm not going to tone it down."
+
+He looked at the floor.
+
+"I've had relationships that always ended bad. Either a broken heart or broken furniture. Lost my mom when I was a kid and my father couldn't give two shits if I lived or died." He looked up. "And then one day, poof, here I am in a new world and I see you staring at me. And not only are you not hostile, but you're offering a room, food, something to wear, lending an ear."
+
+He spread his hands.
+
+"See where I'm going with this?"
+
+Lukas was quiet for a moment. "Yeah. I get it." He leaned forward, elbows on knees. "No price. No angle. I've got teammates who ditched me after one bad game. An ex who told everyone I was cold. A whole year where nobody knew what to do with the transfer wolf." He shrugged. "We've both got baggage. Difference is, tonight I've got a spare couch. That's it."
+
+"Yeah, but why?" Cody shook his head. "Sorry, I'm sounding like a broken record."
+
+"Because I wanted to." Lukas met his eyes. "That's the whole reason. No ledger."
+
+Cody stared at him. The words hit somewhere in his chest and stayed there.
+
+"And you're even listening to me dump all this on you." His voice came out quieter than he expected. "Honestly, it's been a long time since I've had someone I could actually talk to."
+
+Lukas's ears twitched. He was quiet for a moment, like he was weighing something.
+
+"Door's open," he said finally. "Whenever you need it."
+
+He stood up, stretched, joints popping like someone stepping on bubble wrap. Then he leaned down and pulled the couch open, frame unfolding into a bed with a soft clunk. He grabbed linens from the ottoman and tossed them on the mattress. "Blanket's warm, mattress is lumpy. Fair warning." He clicked the lamp off. Moonlight came through the blinds, cutting the room into pale stripes. "I'll be in the other room if you need anything." He stopped at the bedroom door. "Night, Cody."
+
+"Night, Lukas." A pause. Then, quieter: "Thanks for not running."
+
+Lukas looked back. Something shifted in his expression, just for a second. "Wasn't planning on it." He pulled the door mostly shut.
+
+The thoughts came, just like Cody knew they would. Too many to sort through. He'd just dumped a massive chunk of his life on a complete stranger, and Lukas hadn't told him to get lost. Hadn't backed away because of all the red flags.
+
+He lay there for what felt like hours, old memories floating around behind his eyes. And here he was, the living answer to something he'd wondered about since he was a kid. What if animals could walk and talk? Turns out they were rough on the outside but had big hearts.
+
+Going back home felt less likely by the minute.
+
+Finally his eyes closed. He'd just unloaded years of baggage on a stranger who didn't flinch. Didn't run. And somewhere under all the exhaustion, something unfamiliar settled into his chest.
+
+Safe.
+
+Lukas stayed by the cracked door, listening to Cody's breathing go slow and even.
+
+He watched for a while, then padded to the kitchen counter, poured a glass of water, watched the moonlight slide across it. One more look at the living area: Cody was curled up tight on the fold-out, shirt sleeves swallowed past his knuckles.
+
+Lukas left the glass on the counter. No note.
+
+Sometime in the middle of the night, Cody woke up. Thirst dragged him off the fold-out and toward the kitchen. He reached for the cabinet, then stopped. A full glass of water sat on the counter.
+
+He looked left, then right. Did someone wake up and forget? Was it Lukas?
+
+Thirsty as hell, Cody grabbed the glass and drank. He rinsed it, stuck it in the dish rack, then shuffled back to the fold-out. His eyes closed before his head hit the pillow.
+
+In the bedroom, Lukas heard the faucet, the soft clink of glass. He stayed still, one ear pointed at the door he'd left cracked. When the mattress springs creaked again, he let out a slow breath.
+
+Good.
+
+He closed his eyes and let everything go quiet.
+
+---

@@ -1,0 +1,95 @@
+# Chapter 8: Under the Stadium
+
+The tour stretched through the afternoon.
+
+Lukas showed him the back gates at the far edge of campus, past the stadium. Chain-link and concrete, the kind of place that looked like it belonged behind a warehouse. Delivery trucks idled in a loading bay, and a raccoon in a safety vest waved them through without a second glance. "If you ever need to leave campus without being seen," Lukas said, "this is where you do it." Cody filed that away. Escape route. Good to know. A security camera sat on the corner of the loading bay, pointed at the gate. Cody noticed Lukas position himself to block the angle as they passed.
+
+Then the old gymnasium behind the athletic complex. A squat brick building with windows so clouded you couldn't see through them anymore. The place smelled like a hundred years of sweat and chalk, the kind of smell that gets into the walls and never leaves. Ropes hung from the ceiling like they'd given up, and medicine balls sat in the corners gathering dust. "Team used to practice here before they built the new fieldhouse," Lukas said. "Now it's just storage and nostalgia."
+
+A courtyard tucked between two buildings, where a statue of some dead badger stood in fancy robes with one paw raised. Cornelius Hollowell, the plaque said. Founded the university, died before it was finished, got a library named after him. The benches around the edges were covered in soggy leaves that nobody had bothered to clean up.
+
+They grabbed sandwiches from a campus café near the student union. The kind of place with mismatched furniture and coffee that smelled better than it probably tasted. They sat on a bench outside while Lukas pointed out which buildings to avoid and which shortcuts actually saved time.
+
+Cody's pattern brain was working again, mapping the campus layout. Main paths, side routes, sight lines. Where you could be seen and where you couldn't. Lukas was handing him a survival guide without calling it one.
+
+The science building loomed across the way like a threat. Beyond it, the admin offices where the dean worked, windows dark like nobody was home.
+
+But somebody was. Cody caught movement in one of the upper windows. A shape, there and gone. Could have been anyone. Could have been nothing.
+
+*Something's watching.*
+
+He looked away before Lukas noticed him staring.
+
+By the time they reached the fountain plaza, the sun was starting to go down. The fountain itself was empty, drained for winter, just a big stone bowl with nothing in it. But the late afternoon light made everything look golden, like the world was trying to pretty itself up before bed.
+
+"First real stop," Lukas said, nodding toward a path that led to some scraggly willows. "The footbridge. At midnight the koi rise like they're listening. Nobody knows why. You can decide if they're judging or just curious."
+
+They walked down a slope past the willows, their bare branches dragging in the breeze like wet hair. The footbridge was just a stone arch over a slow stream that spread out into a pond on the other side. Cody stepped onto it and leaned on the rail, looking down at the water. The sky was doing that thing where afternoon turns into evening, all orange and pink on the surface like someone spilled paint.
+
+Lukas leaned on the rail next to him, claws clicking on the stone. "They're down there. Ghost white koi, big as your thigh. Watch the swirl when the clock hits twelve. They spell things, if you're drunk enough to believe it." A breeze ruffled the thick fur on his neck. He shook it off. "Place likes collecting questions. Toss one in. See if it floats."
+
+"You make it sound like the lake's a magic eight ball," Cody said. "Answer unclear, try again later."
+
+"Magic eight ball with scales." Lukas chuckled, low and warm. "Only answers when it's hungry." He flicked a pebble into the water. It plinked and disappeared. "Still better odds than my playbook."
+
+Cody stared at the water for a while. Then, quiet, he talked to it.
+
+"Is this my new home?"
+
+Nothing happened. No ripple, no flash of white fish. Just the water sitting there and the sound of students laughing somewhere far off.
+
+Lukas breathed out through his nose. "Silence works too. Means it's your call." He pushed off the rail. "Come on. Tree's next."
+
+"Or like I said," Cody followed, "ask again later."
+
+They headed down a dirt path through some massive old oaks. The light was fading fast now, that time of day when everything starts looking gray around the edges. The hollow oak sat in a clearing up ahead, trunk split down the middle like a mouth frozen mid-yawn. The bark was dark and twisted, and coins lay around the base, green from sitting out in the weather for who knows how long.
+
+"Drop something inside," Lukas said, dragging a claw along the bark. "Coin, wrapper, regret. Campus superstition says the tree keeps it quiet. I say it just rots slower than we do."
+
+"Isn't that the same thing, really?" Cody tilted his head.
+
+Lukas shrugged. "Close enough." He tapped the hollow. "Toss it or keep it. Either way, the tree's eating tonight."
+
+"Do I need to announce it? Like some ancient mystic chant or a lamb sacrifice?" Cody grinned, hoping Lukas got the joke. If he was going to be here a while, might as well try to be decent company.
+
+Lukas showed a fang. Almost a smile. "Skip the lamb. Cafeteria's already overbooked." He tapped the hollow again. "Just whisper it. Tree's got good ears. Or bad memory, depending on how you look at it."
+
+Cody leaned close to the trunk and fake-whispered into the dark hole. "I regret that I forgot my camera at home."
+
+The tree creaked, old wood settling. That was it.
+
+Lukas tilted an ear. "Tree's polite. Didn't laugh." He looked up at the sky, which was turning purple now, first stars poking through like someone had poked holes in a blanket. "One more stop. River bend. Water's cold. Clears your head." He glanced at Cody. "Then dorm. You look like you could use the sleep."
+
+Cody followed him.
+
+They went downhill through thicker brush, past an old stone wall that was mostly rubble now. The trees got denser, blocking out what little light was left. Lukas pushed through some willow branches and the river opened up in front of them. The water was dark and flat, sliding around a pale sandbar like it had all the time in the world. The air smelled like wet rocks and cold dirt.
+
+"Here's where I come when I need to think," Lukas said. "Cold enough to wake you up."
+
+He kicked off one boot and let the water touch his paw. "Dip a toe or jump in. Your call."
+
+Cody crouched at the edge, pulled off his shoe and sock, and stuck his toe in.
+
+He yanked it back like he'd touched a hot stove, except the opposite. "Whoa. That's cold."
+
+He tried again. Winced. Jerked back. Tried again. Finally got his foot in and kept it there, teeth clenched so hard his jaw hurt.
+
+Lukas watched him fight it, smirk pulling at his muzzle. "River's a bully. Likes watching us flinch." He stepped in next to Cody, fur going flat against his leg, muscles tight. "Reminds me of two-a-days. Cold showers after practice. You get used to it."
+
+Cody thought about that. The white light. All those emotions slamming into him at once. The pressure on his chest, that moment when he really thought he might be dying. Then the black. The nothing. Waking up on pine needles with a wolf staring down at him.
+
+"The cold part, maybe," he said. His foot was going numb. "That last second before everything went dark." He hissed as the cold crept higher. "But I'll tell you one thing. I'm not a polar bear. And I'm not putting more than my foot in here, which, by the way, I'm beginning to lose feeling in."
+
+"Yeah, you've got the wrong blood for this." Lukas splashed out, shaking his leg, water flying off like tiny knives. He held out a paw to pull Cody up. "Feeling's overrated anyway. You'll walk again in five."
+
+"Better to feel something than nothing at all." Cody grabbed the paw. Rough pads, warm against his palm.
+
+Lukas hauled him up like he weighed nothing. "Come on, before your toes declare independence."
+
+Cody hopped on one foot, yanking his sock back on. "They definitely feel like they just declared war."
+
+Pins and needles hit when he shoved his foot back in his shoe. Sharp and prickling, like his foot was waking up angry. He laced up fast and limped a few steps, making a face.
+
+The wind picked up as they headed back toward the dorms, cutting through his jacket. Cody shoved his hands in his pockets and followed Lukas up the hill.
+
+---
