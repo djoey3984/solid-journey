@@ -1,0 +1,239 @@
+# Chapter 6: The Fox in the Lab
+
+An alarm went off somewhere down the hall.
+
+Cody opened his eyes to ceiling tiles he didn't recognize, dull morning light coming through a window he didn't remember falling asleep next to. For a long, foggy moment he had no idea where he was. Then it came back in pieces: furry world, talking animals, humans rare, giant wolf who smelled like pine and talked like someone used to keeping people calm. Right. Still here. He stretched on the couch, joints stiff from a night on springs that had seen better days. He rubbed the sleep from his eyes with the heels of his hands, trying to drag himself back to something close to awake.
+
+The alarm cut off. The bedroom door creaked open and Lukas walked out, fur messed up from sleep, athletic shorts hanging low on his hips. He scratched at his ribs with one paw, eyes half-closed, moving with the loose shuffle of someone who woke up early out of habit, not choice.
+
+"Morning." Lukas glanced at the folded blanket on the couch cushion, gave a small nod like he approved. "Couch didn't bite?"
+
+Cody turned toward the voice and his body reacted before his brain caught up. He rolled back toward the far side of the couch, heart kicking against his ribs. The massive wolf shape in the dim morning light tripped every alarm he had.
+
+Then memory caught up. The forest. The crowd. The dorm. The coffee.
+
+"Shit, Lukas." Cody let out a breath and pressed a hand to his chest. "You scared me for a second. Still getting used to the whole culture shock thing. Sorry."
+
+"No blood, no foul." Lukas yawned, fangs catching the window light. "Takes longer than twelve hours to swap universes without freaking out." He moved toward the kitchenette, nudging the coffee pot toward Cody. "Pour, breathe, pretend this is normal. By lunch you'll be catalogued and maybe halfway home."
+
+Cody grabbed the pot and filled a mug, the bitter smell cutting through the fog in his head. Home. The word landed in his chest and just sat there, heavy and confusing.
+
+"Yeah," he said, dragging the word out longer than he meant to. "Home. Sure."
+
+Lukas caught the hesitation. His ears tilted back a little, but his face stayed neutral. He filled his own mug, steam rising off it.
+
+"Or stay," Lukas said. "Choice isn't a slam dunk either way." He took a slow sip. "Library first. After that, you pick the lane."
+
+Cody stared into the black coffee. The guy looking back at him in the reflection was tired and confused. Same face that had spent too many years just going through the motions.
+
+"I don't know, man." He shook his head. "I don't want someone digging through ancient books on my account. Makes me feel like a jerk." He glanced up at Lukas, trying to read him. "I mean, it's not like portals to alternate realities just pop up out of nowhere. Or is that normal here?"
+
+Lukas's face stayed flat, but one ear twitched. "Portals aren't Tuesday errands," he said. "But Timberwood keeps a shelf for the weird stuff. Meteor squirrels, haunted vending machines. You're just this month's footnote." He slid the sugar closer. "Drink. If the books come up empty, we'll figure it out without the guilt trip."
+
+Cody waved off the sugar. "Thanks, but I take my coffee black in the morning. Hits harder that way."
+
+Lukas raised an eyebrow, looking almost impressed. "Most freshmen drown it in syrup." He leaned against the counter, drinking his own black coffee. "Finish quick. Gem texts like she's charging by the letter."
+
+Cody drained the mug in a few long gulps. The caffeine hit his blood like flipping a switch, sharpening his thoughts, dragging his brain back to something that actually worked. He set the empty mug on the counter and rolled his shoulders.
+
+"Alright," he said. "I'm ready."
+
+Lukas rinsed his cup and put it in the sink. "Library's across the quad. Stick close, keep your head down. People still rubberneck." He grabbed his keys, his phone, and a half-eaten protein bar from the counter. "Save your questions for Gem. She likes being the center of attention."
+
+"Noted. Lead the way."
+
+Lukas pushed the door open. Morning air hit Cody's face, cold and sharp, the bite of late October. The sky hung low and gray, threatening rain but probably bluffing. Wind cut through his thin jacket like it wasn't even there. He shoved his hands in his pockets and wished, not for the first time, that he'd landed in this world with something warmer. The quad stretched out in front of them, lawns brown and dead, brick paths dark from overnight moisture. Oak trees lined the edges, branches mostly bare, though a few stubborn leaves still hung on in shades of rust and brown. The ones that had fallen covered the grass in soggy patches, and every few seconds the wind sent a handful skittering across the walkway like they were late for something. A few early joggers moved along distant paths, breath making little clouds. Lukas positioned himself between them and Cody without being obvious about it, pace easy but purposeful.
+
+"Path cuts behind the science block," Lukas said, voice low. "Fewer gawkers."
+
+Cody's eyes kept wanting to wander. Everything about this place pulled at him: buildings that mixed organic curves with familiar brick and glass, statues of animals in scholarly robes, lampposts that curved like they were reaching for something. His pattern brain was already working, cataloging details whether he wanted it to or not. The way the architecture blended old and new. The paths that radiated out from central hubs. The sight lines that let you see who was coming from multiple directions. Someone had designed this place to feel open but watchable. Safe but surveilled. He wanted to stop and look, to figure out how a place like this could exist. But Lukas was taking back routes for a reason. Cody still remembered all those staring faces in the clearing.
+
+"Right," he said. "No need to draw attention. Got it."
+
+"Eyes forward, ears open," Lukas murmured as they passed a hedgehog on a bicycle. The hedgehog glanced their way, did a double-take, then pedaled on without stopping. "You'll get the tour after we know you won't disappear mid-sentence."
+
+Cody almost smiled. "Sorry. Explorer Cody's on hold. Noted."
+
+Lukas made a sound that might've been a laugh. "Explorer Cody can have his turn once the liability drops."
+
+They cut behind the chemistry building, Lukas's boots scraping against wet brick. A squirrel in a lab coat almost ran into them coming around a corner, apologized in a distracted voice, then froze when it saw Cody. Eyes went wide. Whiskers twitched.
+
+Lukas steered him forward before the moment could drag out. "Almost there."
+
+Cody glanced back. The squirrel had his phone out. Typing something. Not moving.
+
+*Filing that away.*
+
+The library announced itself before they reached it.
+
+It sat at the end of a narrow path, a hulking pile of gray stone and old brick that looked older than everything else on campus. Three stories of gothic architecture, all pointed arches and narrow windows, with a clock tower sticking up from one corner like a raised fist.
+
+Dead ivy crawled up the east side in a tangle of brown and rust, still clinging even though it was dead, waiting for spring to bring it back. Gargoyles crouched at the corners of the roof, faces worn smooth by decades of weather. A pair of stone badgers flanked the main entrance, sitting on their haunches with books open in their laps, carved eyes watching everyone who walked by.
+
+The words HOLLOWELL HALL were carved into the stone above the main doors, letters dark with age.
+
+Near the entrance, a campus security officer stood with his arms crossed. Stocky. Badge on belt. Badger.
+
+The same one from the clearing yesterday.
+
+Cody's pattern brain flagged it immediately. *Routine patrol? Or following?*
+
+Lukas didn't break stride, but his route shifted. Side door instead of main entrance. Didn't even glance at the officer.
+
+*He noticed too.*
+
+Cody ducked his head, hunched his shoulders. The last thing he wanted was to become a problem for the only person in this world who'd been decent to him. If Gem couldn't find a portal, if there was no way back, Lukas would probably kick him out. And then what? Wander around a town full of talking animals until someone decided he was a problem worth solving?
+
+Lukas glanced back. His eyes caught the hunch of Cody's shoulders, the way he'd folded in on himself.
+
+"Hey." His voice was low and steady. "You're not cargo." He slowed down just enough to walk beside Cody instead of ahead of him. "If Gem comes up empty, we figure something else out. Dorm's still yours until you say otherwise."
+
+Some of the tension in Cody's chest let go. Not all of it, but enough.
+
+"Your bullshit detector is scarily accurate, bro," he muttered.
+
+"Thanks." Lukas shrugged, ears flicking. "Years of reading blitzes."
+
+Lukas steered them away from the main entrance, toward a side door half-hidden behind some evergreen bushes. Gothic arch in weathered stone, iron ring handle dark with age. He grabbed it and pulled. Cool air came out, carrying the smell of old paper and dust, that library quiet.
+
+"Gem's waiting on the main floor," Lukas said. "Then we head down to Special Collections. Try not to stare."
+
+The street noise cut off the second they stepped inside.
+
+The temperature dropped right away, cooler and still, with that old library smell. Paper, wood polish, something musty underneath. Cody's eyes took a second to adjust. The ceiling was high, vaulted and dark, held up by thick wooden beams that looked like they'd been there forever. Somewhere deeper in the building, a radiator clanked and hissed, fighting the autumn cold.
+
+The main floor stretched out in rows of tall shelves, packed tight with books whose spines showed every shade of old. Cracked leather, faded cloth, gold letters worn to nothing. Reading tables sat between the stacks, green-shaded lamps on each one, gray morning light coming through the tall windows.
+
+A few students hunched over textbooks and laptops. A raccoon in reading glasses. A deer with antlers so wide he'd claimed a whole table for himself. A bunch of mice sharing one oversized chair.
+
+Cody's pattern brain read the room automatically. The raccoon was stressed, flipping pages too fast, not retaining anything. The deer was calm, methodical, probably a senior who'd done this a hundred times. The mice were studying together but one of them kept checking her phone. Group project drama, probably.
+
+*Stop it,* he told himself. *Focus.*
+
+A massive circulation desk sat in the center of the room, carved from dark wood and cluttered with return carts and stamp pads. A sleepy-looking owl staffed it, feathers ruffled, barely glancing up as they passed.
+
+Their shoes scuffed against the floor, and somewhere a clock ticked. That was it for noise. Lukas led him past the reference stacks, tail low, eyes checking the rows.
+
+"Third carrel on the left," Lukas whispered. "She's already waving at us."
+
+Cody looked up, risking being seen. And there, tucked into a study carrel near the back wall, a flash of red fur caught the lamplight.
+
+A slim fox in an oversized cardigan waved from behind a small fortress of stacked books and a beat-up laptop. Her fur was a bright reddish-orange, brighter at the tips of her ears and along her tail. A mechanical pencil stuck out of the fur behind one ear like she'd forgotten about it.
+
+Her amber eyes flicked to Cody, went wide for a second, then snapped back to Lukas with a look that said questions were lining up behind her teeth.
+
+His pattern brain caught the rest. The way she leaned forward, not back. Curious, not threatened. The slight tilt of her head, cataloging him the same way he was cataloging her. The tap of her finger on the desk, impatient but controlled.
+
+*She's smart,* he thought. *And she knows it.*
+
+Lukas held up a palm. *Later.*
+
+"Gem, this is Cody. Human, lost, portal mystery." He tilted his head toward the fox. "Cody, Gem. Campus dictionary with a tail."
+
+Cody looked at those wide amber eyes and did his best to smile. "Um. Hi."
+
+Gem's ears twitched, curiosity practically buzzing off her. She leaned forward over the carrel desk, pencil almost falling out of her fur. "Human? Like, actual skin, no fur?" She caught herself, cleared her throat, and sat back. "Right. Sorry. Research mode." She closed her laptop and stood, slinging a messenger bag over her shoulder. "Good news: I found your flavor of weird. Bad news: I need to poke at you a little to confirm it. But not here." She glanced at the library entrance, then back. Her voice dropped lower than necessary. "Too many ears. We need to go downstairs."
+
+She led them through the stacks toward the back of the building, past rows of shelves that got older and dustier the farther they went. They reached an alcove where an ancient elevator sat behind a brass gate, the kind with an accordion door that looked like it belonged in a black-and-white movie.
+
+Gem pulled the gate open with a screech of metal. "Special Collections. Basement level. It's where they keep the weird stuff." She grinned at Cody. "You'll fit right in."
+
+The elevator groaned as it went down, cables creaking overhead. Cody watched the floors tick by through the gate. Main floor, then a long stretch of nothing, then a shudder and a stop.
+
+The basement was a different world.
+
+The ceiling hung low, close enough that Lukas's ears almost touched it. The air was heavier down here, thick with the smell of old paper and dust that had been settling for decades. Glass cases lined the walls, filled with books too old or too strange for the main collection. Wooden card catalogs stood between reading alcoves like guards, brass handles gone green. The lighting came from old gas lamps that had been converted to electric, and they flickered like they weren't sure about the upgrade.
+
+A security camera sat in the far corner. Small, easy to miss. But Cody's pattern brain caught it.
+
+Gem led them to a back corner where a heavy wooden table sat surrounded by stacks of open books and ancient tomes. She dropped her bag on a chair and started pulling out supplies: a small plastic baggie, a vial of silver dust, a stopwatch.
+
+The corner she'd chosen put a bookshelf between them and the camera. Coincidence? Cody doubted it.
+
+"Welcome to my office," she said. "Well, my unofficial office. Officially I'm not supposed to be down here without a faculty escort, but Professor Whitmore owes me for fixing his citations last semester." She flipped open a thick book, one claw tapping a hand-drawn circle on the yellowed page. "Now. Let's see what flavor of weird you actually are."
+
+Cody kept his mouth shut. Lukas had told him to let her talk, let her get what she needed. If she asked questions, he'd answer. Otherwise, zip it.
+
+But he was watching. Reading her movements, her confidence, the way she handled the materials like she'd done this before. This wasn't improvised. She'd prepared.
+
+*She was already looking into this before we got here,* he realized. *Lukas must have told her last night.*
+
+Lukas leaned over Gem's shoulder, looking at the inked symbols. "Timeline?"
+
+"Two hours for the sigil to set, plus whatever juice ripped the hole open." Gem's eyes flicked to Cody, sizing him up. "Residue sticks to whoever falls through. You're basically a walking receipt."
+
+Lukas nodded once, then turned to Cody. "She needs a sample. Hair, spit, whatever's easiest."
+
+Cody blinked. The timing seemed almost too neat. "So hold on. You're telling me this is a totally normal thing that happens here? If that's the case, this portal can be opened any time?"
+
+Gem snorted. "Normal? Please. Documented is not the same as normal." She tapped the page in front of her. "Portals leave fingerprints. Emotional spikes, time residue, the whole messy package. I map the print, I guess when the door might swing again. Could be tomorrow. Could be never." She leaned forward, pencil spinning between her fingers. "That's why we test now instead of lighting candles and hoping."
+
+"So you're basically telling me it's decision time."
+
+"Decision time was yesterday," Lukas said quietly, "when you landed in pine needles."
+
+"What he said." Gem shrugged. "We test, we wait, we see if the door still remembers you. If it does, you get a choice. If it doesn't, welcome to Timberwood, population: you."
+
+Cody's chest tightened. "Okay, okay, okay. It just seems so sudden. I didn't think I'd need to make this decision this fast." He swallowed. "But Gem, when I landed here, I didn't do any ritual that needed blood, hair, or a chant. Are you sure this is going to work?"
+
+"Rituals are for drama queens." Gem leaned back in her chair, grinning. "Portals don't ask permission. They yank, they toss, they leave lint behind. I just read the lint." She pulled a sterile Q-tip from the baggie. "Swab inside your cheek. Thirty seconds. No biting, no overthinking."
+
+"Okay. So what do you want me to do? Just hand you a swab?"
+
+Gem held out the Q-tip across the table. "Twirl it inside your cheek. Thirty seconds, no biting." She set the little stopwatch on the wood next to her elbow. Lukas shifted his weight, putting his back to the nearest aisle, blocking the view while Gem uncapped the vial of silver dust.
+
+Cody did what he was told, watching the whole thing with detached curiosity. The swab felt weird and clinical against the inside of his mouth, seconds ticking by in the basement quiet.
+
+When he handed it back, Gem sprinkled the dust over the damp cotton. It stuck there like frost for a second, then lit up purple. Cody's breath caught.
+
+Gem's head tilted. Her pencil stopped tapping.
+
+For a second, the purple flickered. Something underneath. Amber? Gold? Gone before Cody could be sure he'd seen it.
+
+Gem blinked. Her ears flattened, then relaxed. She glanced at Cody, then back at the glow, then made a small note in the margin of her book. Didn't say anything.
+
+"There we go." Her voice was steady, but her pencil was tapping again. Faster than before. "Fourteen hours since the door opened. Emotional signature reads panic spiking into relief." She glanced at Lukas, one ear cocked. "Your stray checks out."
+
+Lukas breathed out through his nose. "Window?"
+
+"Hard to say exactly." She wiggled her fingers at the fading glow. "Resonance doesn't snap shut like a door. It fades. You've got maybe a week before the signal's too weak to punch through." She met Cody's eyes. "After that, the trail goes cold and I can't promise anything. Door might crack open next year, might stay shut forever."
+
+Cody did the math. "A week."
+
+"Give or take a day." Gem shut the book. The note she'd written disappeared with it. "Enough time to figure things out. Not enough to waste."
+
+A week. The number landed in Cody's head and just sat there.
+
+He thought about what was waiting for him back home. The apartment. His father. The bus rides to a campus where nobody knew his name. The job at the burger place, grease under his fingernails, counting down the hours until he could leave.
+
+Then he thought about this place. The stares, sure. The confusion. But also the coffee this morning, and Lukas blocking the gawkers, and a fox who'd spent her night researching how to help a stranger.
+
+*A week to decide.*
+
+"So I'm here for the next few days, play tourist, and then decide to leave or stay." He tried to sound casual. "Simple enough, I guess."
+
+"Tourist, refugee, transfer student." Lukas hooked a thumb toward the elevator. "Pick your label. Dorms stay open, cafeteria still serves. We'll keep you off the front page till you figure things out."
+
+"So what now?"
+
+Lukas tapped Gem's notes into his phone, fingers moving fast. Time stamp, location, residue color. "Now we get out of here. Library's got ears, even down here." He tilted his head toward the elevator. "Back exit, then food. You've got time to decide if Earth still owns you. No point doing it hungry."
+
+Cody turned back to Gem. Something about how she'd handled all this, quick and capable and curious without being pushy, made him want to say something.
+
+"Thanks, Gem."
+
+The fox flicked a two-finger salute, quick and easy. "Don't do anything boring, human. I'll be disappointed."
+
+The elevator groaned back up to the main floor, and Lukas led them toward a back stairwell Cody hadn't seen before. They climbed one flight and pushed through a door that opened onto a side path behind the library.
+
+Late morning light hit the quad, brighter now than when they'd gone in. The gray clouds had thinned out, letting patches of blue show through. Students crossed the paths in loose groups, backpacks over shoulders, voices carrying in the cold air.
+
+Cody blinked at the sky, surprised how much time had passed in there.
+
+"Keep the notes buried," Lukas called back toward the closing door, knowing Gem couldn't hear him but saying it anyway. "If Rumi sniffs this out, he'll turn it into locker room legend."
+
+He turned to Cody.
+
+"Pancakes or noodles?" Lukas asked, already moving. "You've got one last easy decision before the big ones."
+
+---

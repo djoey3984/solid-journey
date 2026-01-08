@@ -1,0 +1,85 @@
+# Chapter 7: Duck Noodles
+
+"Noodles," Cody said. "Definitely noodles."
+
+Lukas grunted and steered them away from the library, cutting across a corner of the quad toward one of the smaller paths. The brick underfoot was still dark with overnight moisture, and fallen leaves had gathered in soggy clumps along the edges.
+
+A few students glanced their way as they passed. A rabbit did a double-take. A pair of foxes whispered to each other after Cody walked by. His pattern brain cataloged them automatically. The rabbit was surprised but not hostile, ears up, body language open. The foxes were curious, leaning toward each other, probably comparing notes. Neither group moved to follow or confront. Gossip, not threat. Lukas kept moving, his bulk blocking most of the sight lines. Two campus security officers walked past on the main path. Casual pace. But their eyes found Cody. Held for a beat too long. Lukas's ear twitched. He didn't say anything. Just waited until they'd passed, then picked up the pace slightly.
+
+They skirted the edge of a dormitory Cody didn't recognize, windows dark, laundry hanging from a few balconies despite the cold. The path narrowed here, winding between the building and a row of bare hedges that had probably been green a month ago.
+
+The late morning air still carried the bite of October, cutting through Cody's thin jacket. But the wind had died down, making the cold more bearable. Fallen leaves crunched under their feet, and somewhere nearby the smell of woodsmoke drifted from a maintenance building's chimney.
+
+Then a new smell cut through. Sesame, garlic, something rich and savory.
+
+A food cart sat ahead, wreathed in steam and sizzle. A stocky badger in a grease-stained apron worked the wok, tossing noodles with practiced flicks of the wrist. Early lunch crowd, or maybe just the perpetually hungry, huddled around the cart with their collars turned up against the chill. Cody's stomach growled loud enough that Lukas's ear flicked.
+
+Lukas nodded at the vendor. "Two duck broth bowls. Extra scallion."
+
+The badger's eyes flicked to Cody, lingered for half a second, then returned to the wok without comment.
+
+Cody read him instantly. The slight pause, the neutral expression, the deliberate return to work. Professional. Discreet. He'd clocked that Cody was human and decided it wasn't his business. Either he'd seen weirder or Lukas was a regular.
+
+Probably both.
+
+They found a low stone wall nearby and sat. The stone was cold through Cody's jeans, but the bowl Lukas handed him radiated warmth, steam curling between them in the autumn air.
+
+Across the quad, near the science building, someone stood with a clipboard. A deer in a white coat, checking something on a list, then looking up. Scanning.
+
+Their gaze swept across the quad. Found Cody. Lingered.
+
+Then they turned and walked inside.
+
+Cody blinked. When he looked again, they were gone.
+
+*Something's watching,* his pattern brain whispered. *You don't know what yet. But something.*
+
+The first sip hit Cody's tongue and he almost groaned. Rich, salty, deeply savory, with noodles that had just enough chew. It tasted like ramen from back home, if ramen had been made by someone who actually gave a damn.
+
+"Thanks, man." Cody let the warmth settle into his chest, chasing out the chill from the walk. "This is really good. Reminds me of ramen back home, but better."
+
+Lukas huffed, something that might've been a laugh. "Vendor's been here longer than most of the faculty. Knows what he's doing." He slurped his noodles, unbothered. "You've got time to figure out if this bowl tastes better than anything waiting for you back home. No rush. Just eat."
+
+Cody let the broth warm him, watching students drift past in the thin midday light. A few leaves skittered across the brick path, pushed by a gust that made him hunch deeper over his bowl. A week, Gem said. Time to decide if he wanted to stay or go.
+
+The math was simple. The answer was not.
+
+What was waiting for him back there, really? An empty apartment that smelled like bourbon and regret. A father who'd stopped being a father years ago. A community college where he was nobody, going nowhere, for no reason he could name.
+
+Here, at least, he was interesting. Here, someone had bothered to feed him.
+
+"Hey," Cody said, quieter now. "I don't know how to say this without sounding weird, but you've been really decent to me. Someone who just popped into existence out of nowhere." He turned the bowl in his hands, letting the heat soak into his fingers. "Is there some way I can repay you? I feel guilty just taking advantage of your hospitality."
+
+Lukas swirled his noodles, eyes on the broth. "Repay me by not bleeding on the carpet." A pause. "Or signing autographs for Rumi's fan club."
+
+"Who's Rumi?"
+
+"Teammate. Thinks humans are cooler than they are." Lukas lifted a brow. "Hospitality's cheap. Curiosity's expensive. You're paying just by staying interesting. Don't spoil it."
+
+"Staying interesting?" Cody snorted. "Besides being one of the rarest creatures that popped up, this is me, man. Just boring old Cody with a boring old life."
+
+"Boring doesn't step through a hole in the sky." Lukas tipped the bowl back, draining the last of the broth. "You're a blank page in a library that thinks it's read everything. That's currency here. Keep turning."
+
+Cody sighed, staring into the remnants of his own bowl. "Lukas, dude. Put yourself in my shoes. I'm scared that at any moment, someone's gonna decide I'm more interesting as a research subject than a person. It's a lot to take in."
+
+Lukas set his bowl down. His eyes flicked briefly toward the science building visible across the quad, then back to Cody. When he spoke, his voice was lower, steadier.
+
+"You landed on a campus, not in a lab." Those amber eyes held Cody's, unblinking. "You're a person first. Everything else is noise."
+
+The words were calm, but something in the set of Lukas's jaw said he meant them. Cody noticed the way the wolf's ears stayed alert, tracking movement at the edges of his vision even while they talked. Always watching. Always ready.
+
+"Fear's loud," Lukas continued, "but it's not the only voice. Listen for the quiet one that says you're still breathing. That's the one that gets you home, or keeps you here." He stood, stacking both bowls. "Either way, you decide. Nobody else."
+
+Cody let out a breath he hadn't realized he was holding. "So should I blend in or make myself seem mysterious?"
+
+"Blend till you're bored of it. Then flash something weird." Lukas handed the bowls back to the badger vendor with a nod. "Keeps the gossip circling at a safe distance." He turned back to Cody. "Come on. Tour first. Back gates, river path, the hollow tree that supposedly eats secrets. You can decide which ones to feed it."
+
+Cody pushed himself off the wall. "Dude, really. If you ever need anything, I'm grateful. Happy to share whatever I've got."
+
+"Need something?" Lukas started down the brick path, hands in his pockets. "Stick around. Story's still writing itself."
+
+*Story's still writing itself.*
+
+Cody followed, hands shoved in his jacket pockets against the cold. For the first time since he'd landed in the pine needles, the weight in his chest felt a little lighter.
+
+---

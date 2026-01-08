@@ -1,0 +1,55 @@
+# Chapter 3: A White Light
+
+Cody turned the page. For a second his brain checked out, eyes sliding over the words without taking anything in. Then one word jumped out from the middle of the paragraph.
+
+*Timberwood.*
+
+His pulse kicked. The word wasn't bolded or anything, just regular print, but something in him reacted like someone had yelled it in his ear. Adrenaline hit him like a shot of espresso. His chest got tight, not painful, just this pressure that made it hard to breathe. The hairs on his arms stood up. His eyes went wide and for a second, just a second, something woke up inside him.
+
+Hope.
+
+Or wanting.
+
+Some feeling so old and buried he couldn't even name it.
+
+The word brought a flash with it. Not a memory he recognized, but a picture that popped behind his eyes like a camera flash. Tall, dark trees disappearing into morning fog. A two-lane road cutting between them. A green highway sign, just clear enough to read.
+
+*Welcome to Timberwood.*
+
+Then it was gone. The picture, the feeling, cut off like someone hit a switch.
+
+Why that name? He didn't know anyone from Timberwood. He'd never been there, far as he knew. But the word stuck in his head like a fishhook.
+
+He frowned, turned the page, and the world started going weird. Slow at first. The hum of computers got quieter, like someone was turning down the volume. The sound of feet on carpet faded out, like hearing things underwater. A thin ringing started in his ears, barely there. The colors around him started getting fuzzy. The desk, the shelves, even his own hands looked like they were losing their edges. His pattern brain kicked in, trying to make sense of it. Stroke? Seizure? Some kind of episode? He ran through the symptoms he knew. Vision changes. Hearing changes. Tingling. But this didn't feel medical. It felt like the world was coming apart at the seams. Then everything hit at once.
+
+Every emotion he'd ever felt slammed together like cars in a pileup. Happy, sad, scared, pissed off, all of it mashed together into one big mess. His whole body locked up. Felt like his brain was trying to run ten programs at the same time and crashing hard. It all squeezed down into this tiny bright spot right in front of his eyes, like staring at a light bulb too long. He smelled something sharp and clean, like the air right after lightning hits.
+
+White.
+
+The words on the page disappeared. The ink just melted away, leaving blank paper. Then the paper was gone too. The page, the desk, the library, all of it wiped out like someone had taken an eraser to the whole world.
+
+Part of him wanted to fight it. Dig in. Hold onto something, anything, that made sense.
+
+But another part, the part that had been sitting on the edge of his bed every morning wondering why he bothered getting up, that part leaned into the pull.
+
+*Anywhere but here.*
+
+He stopped fighting.
+
+For a second he couldn't tell if he was falling or floating. No up, no down, no sound. Just the name Timberwood echoing through all that white nothing.
+
+Cody floated in empty white. Like being inside a blank piece of paper. No horizon, no shadows, just bright in every direction. His feet drifted down, slow and steady, until they hit something that felt like ground. He could feel pressure under his shoes, but when he looked down there was nothing there. No floor. Just more of that bleached-out white everywhere. The white started changing. First it just got fuzzy at the edges of his vision, like a TV going out of focus. Then it got thicker, shifting and warping faster, until it felt like the whole place was breathing around him. His eyes watered. Everything blurred. He squinted against the brightness. The air got heavy. Pressed down on his chest and shoulders like a weight. Each breath came harder than the one before. A thought crept in, small and scared. His heart pounded when it hit him.
+
+*Am I dying?*
+
+*Am I already dead?*
+
+The second he thought it, the white answered.
+
+It rushed at him from every direction, collapsing inward. In one silent second, all of it slammed into his chest. He felt it go through his ribs and into his lungs, a blast of cold that knocked the air right out of him.
+
+Everything went black.
+
+No light. No up or down. No floor. No feeling in his hands. Just thick, perfect nothing, like someone had switched off the whole idea of space.
+
+---

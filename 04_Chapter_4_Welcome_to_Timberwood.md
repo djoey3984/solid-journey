@@ -1,0 +1,169 @@
+# Chapter 4: Welcome to Timberwood
+
+Black. Nothing but black. The kind of dark where you can't tell if your eyes are open or shut.
+
+Then a feeling. Fuzzy at first, like waking up after passing out. Something solid under him. His fingers twitched and touched something soft. Grass. Blades bending under his hand, tickling his skin. His palm hit something rougher. Thin, sharp little things.
+
+Pine needles.
+
+*What the hell am I touching?*
+
+That thought helped. Gave him something to grab onto. He moved his fingers again and felt more of those little sharp bits. Pine needles everywhere. Like someone had dumped a Christmas tree on him.
+
+Then a smell. Weak at first, like his nose was stuffed with cotton. Pine, barely there. It got stronger bit by bit, the way your nose clears when a cold finally lets up. That moment when you blow your nose and can actually smell again. Then it rushed in all at once.
+
+Pine sap and fresh grass. Mixed together into something obvious.
+
+*Woods. I'm in the woods.*
+
+Sound came next.
+
+At first just muffled garbage in his ears, like water stuck in there after swimming. Then it started clearing up. The noise broke apart into pieces.
+
+Voices.
+
+A few of them. Low, scattered. Words he couldn't make out. One sounded like a gasp. Another like a short laugh. Chatter mixing with bird calls from somewhere up in trees he couldn't see yet.
+
+Then one voice cut through. Deeper. Rough.
+
+"Alright everyone, step back, nothing to see here."
+
+Clear. Close. The kind of voice that expected people to do what it said. Cody pulled in one more breath that tasted like pine and cold air.
+
+Then he opened his eyes.
+
+Blurry. Everything blurry.
+
+Light and color smeared together above him, but he could make out trees. Tall pines reaching up, branches weaving together into a dark ceiling. Light came through in streaks, dust floating around in it.
+
+Something moved between him and that light.
+
+A dark shape leaned over him, blocking the brightness. His eyes tried to focus but couldn't get there. All he saw was a big silhouette, shoulders wide enough to block half the sky.
+
+Then he found the eyes.
+
+Not human. Two amber points, like someone had switched on a pair of gold headlights behind that dark face. His vision snapped into focus around them.
+
+Dark fur framing that stare. Almost black but silver at the edges where the light caught it. A muzzle, long and solid. Ears pointed forward. The shape became a face he'd only ever seen in movies or nature documentaries. A wolf. But standing upright. Alert. Thinking.
+
+A big paw reached toward him. No. A hand. Padded, tipped with claws, covered in dark gray fur.
+
+Cody jerked back before he knew what he was doing, heart hammering against his ribs like it wanted out. Pine needles stabbed into his palms as he scrambled backward, breathing way too fast.
+
+Someone behind the wolf gasped. Others muttered. As his eyes adjusted, the rest of the scene came into focus.
+
+They were all staring at him.
+
+His brain kicked into gear. Same thing it did on the bus, in the student lounge, on the field. Reading the room. Finding the threats. A tall giraffe stood farther back, long neck bent down, spots disappearing into a campus jacket. Body language said scared. She kept her distance, weight shifting like she was ready to bolt. Not a threat. Near her feet, a little mongoose hung onto a backpack strap, whiskers going crazy. Curious, not aggressive. Leaning forward, not back. Also not a threat. Some gazelles huddled together, ears flicking, eyes huge. Herd behavior. They'd run before they'd fight.
+
+The badgers were different. A bunch of them, built like linebackers even just standing there. Arms crossed, weight forward. That was challenge posture. They were deciding whether he was prey.
+
+*Those are the ones to watch.*
+
+A couple more wolves behind the big one, younger, skinnier, wearing team shirts and sweats. Following the leader. They'd do whatever he did.
+
+And in front of them all, the one who'd reached for him.
+
+Up close, he was huge. Built like a refrigerator wearing a dark Timberwood Badgers jersey and jacket. Dark gray fur, thick around the neck and shoulders, silver streaks under his eyes and across his chest. Those amber eyes locked onto Cody. Steady. Not mean, but the kind of intense that made you want to look away. Too real.
+
+But his paw was open, not fisted. His ears were forward, attentive, not flattened back in aggression. His body was positioned between Cody and the crowd. Not cornering him. Shielding him.
+
+*He's not hunting. He's protecting.*
+
+The realization cut through some of the panic.
+
+The smell hit him full force now. Pine, trampled grass, something clean and warm underneath. Like a locker room after everyone's showered, but outside.
+
+His mouth moved before his brain caught up.
+
+"Stay back. Do not come closer!" Cody yelled, voice cracking through the trees louder than anything he'd said in years.
+
+The yell hung there.
+
+The big wolf didn't flinch. Didn't even blink.
+
+He straightened up a little, ears tipping forward, paws held out where Cody could see them. When he talked, his voice was low and steady. Same gravel as before.
+
+"Easy," he said. "I'm not going to touch you."
+
+Cody sucked in a rough breath. His eyes bounced around the circle. The giraffe. The mongoose. The gazelles. The badgers. More wolves. All of them standing on two legs, wearing clothes, looking at him with the same mix of curiosity and nerves he felt in his own gut.
+
+"What the hell," Cody whispered. Then louder. "You're talking. You're all talking. How is that even possible?"
+
+A few students backed up. Someone muttered something about humans. Another voice said, "I told you it was a human."
+
+The big wolf glanced over his shoulder at them, then back at Cody. One ear twitched.
+
+"Yeah," he said. "I'm talking. Welcome to Timberwood Hollow, where the animals walk upright and the humans are the weird ones."
+
+If that was a joke, his voice didn't show it. He stayed crouched, eyes level with Cody's. One paw still out, claws tucked.
+
+"You're freaking out the locals almost as much as they're freaking you out," he added. "Keep shouting and security will decide you're a problem instead of someone who needs help."
+
+Cody looked at the paw, then at the crowd behind it. His breathing was ragged, but he made himself talk.
+
+"Am I the only human here?"
+
+The wolf made a sound that might've been a laugh.
+
+"You're the only one on the ground," he said. "You're not the first we've ever seen. Just the first I've seen in years."
+
+He looked past Cody. Campus security was pushing through the crowd, radio crackling.
+
+"Crowd's getting bigger and they're already jumpy," the wolf said. "Can you sit up? Can you walk?"
+
+Cody ran the options. Stay here, get swarmed by security, end up in some kind of holding cell while they figured out what to do with him. Or go with the giant wolf who hadn't made a single aggressive move, whose body language said protector, whose voice said I've got this handled.
+
+His pattern brain had already made the call. The wolf was the safest bet in this crowd.
+
+He pushed himself up. Legs felt like jelly. The wolf moved closer, slow enough that Cody could track every inch.
+
+"What am I supposed to do?" Cody muttered. "I move, they stare. I stay here, they stare more."
+
+"First," the wolf said. "Breathe."
+
+Cody dragged air into his lungs. Pine and dirt and that weird warm smell coming off the wolf.
+
+"Second," the wolf went on, "we walk. Nice and calm. My dorm's close. Quiet. Private. You can ask questions there without half the freshman class filming you for their group chats."
+
+He glanced toward the trees.
+
+"Third, you tell me what you remember. Library, white light, whatever happened. Might help us figure out how to get you home."
+
+"Home," Cody repeated. The word felt thin. Like it didn't mean much anymore. "Okay. Sure. But what about this crowd?"
+
+The wolf stood up to his full height, turning so his body blocked Cody from the students. From down on the ground, Cody got a real look at how big he was. Shoulders that could fill a doorway. Jersey stretched tight over a chest built from years of hitting people for sport. When he spoke, his voice carried without him needing to yell.
+
+"Alright," he said, sweeping his gaze around. "Show's over. Campus security has this. Get back to class before your professors start counting heads."
+
+The crowd shifted. Some students hesitated, but security seemed happy to let the wolf run things. One of the officers, a stocky badger with a badge clipped to his belt, caught the wolf's eye. The wolf gave him a tiny nod. *I got this.*
+
+The officer relaxed and turned away, waving a couple gawkers down the path.
+
+But Cody's pattern brain caught something else. A second officer, a lean coyote, stood at the edge of the clearing with a radio to his muzzle. Not managing the crowd. Reporting. His eyes stayed on Cody the whole time he talked.
+
+On a building past the trees, a security camera sat mounted under the eaves. Red light blinking.
+
+The crowd broke up. People started talking again, quieter. They drifted back toward the main paths. A few kept glancing back, but nobody came closer. The wolf looked down at Cody.
+
+"Walk beside me," he said, quiet. "Don't look back."
+
+He held out his paw again.
+
+Cody had made his choice the moment he'd read the wolf's body language. Protector, not predator. He grabbed the paw. The pads were rough but warm, the grip careful. The wolf pulled him up like he weighed nothing.
+
+For a second, the wolf's ear twitched. His eyes flicked to where their hands met, then back to Cody's face. Something crossed his expression. Curiosity, maybe. But he didn't say anything.
+
+They walked out of the circle together. The wolf kept an easy pace down a narrow path between the pines, away from the main trail. His tail hung low and relaxed, his big body blocking most of the stares. Cody glanced back once. The coyote officer was still there. Watching which path they took. After a few seconds, the wolf spoke.
+
+"My name is Lukas," he said. "What's yours?"
+
+"Cody," he answered. Voice still shaky. "Cody Guiles."
+
+Lukas nodded once, like he was filing it away.
+
+"Alright, Cody," he said. "Dorms are just past those oaks, third building on the left. We get you inside, you sit down, and then we figure out what the hell happened."
+
+They kept walking. The sounds from the clearing faded behind them. The smell of pine and grass followed them out of the woods.
+
+---
