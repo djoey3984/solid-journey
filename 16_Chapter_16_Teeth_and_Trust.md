@@ -1,0 +1,110 @@
+# Chapter 16: Teeth and Trust
+
+
+The door opened at eleven on the dot. Lukas filled the frame, gym bag over one shoulder, practice jersey dark with sweat. His fur was damp at the edges, ears still flattened from the helmet. He looked tired, but something in his posture loosened when he saw Cody sitting on the couch.
+
+"Hey." He dropped the bag by the closet. "You stayed."
+
+"Said I would." Cody kept his eyes on the window.
+
+Lukas crossed to the kitchenette and ran water over his paws, scrubbing off the grass and chalk. "Practice was brutal. Rumi's got everyone wound tight for Friday." He shook his paws dry, grabbed a towel. "You eat anything?"
+
+"Wasn't hungry." His stomach had been in knots since Whitmore Hall.
+
+Lukas paused. His eyes found Cody's face, and Cody felt the weight of that look. Reading him. The way he always did. "You okay?"
+
+"Fine." The word came out too fast. Cody made himself shrug. "Just bored. Walls start pressing in after a while." Lukas studied him for another beat, then nodded, accepting it, and something in Cody's chest twisted. It was that easy to lie to him. That easy to hide.
+
+"Got an idea." Lukas crossed to the closet and pulled out a beat-up football, spinning it once on his claws. "There's a tunnel under the practice field. Storage space, mostly. Rusted hatch, no cameras. We're going."
+
+Not *want to go?* Not *what do you think?* Just: we're going. *When's the last time YOU decided something?*
+
+"You played in high school, right?" Lukas asked. "Captain?"
+
+"Running back. Three seasons." Cody watched the ball spin. He hadn't touched a football since the day everything fell apart.
+
+"Good." Lukas tossed the ball from paw to paw. "Dark enough to disappear in. Thought we could use it."
+
+*No cameras.* The phrase caught somewhere in Cody's head. A week ago, it would have sounded like safety. Now it sounded like something else. Isolation. Somewhere no one would see. He pushed the thought down. This was Lukas. The same Lukas who'd pulled him out of a pine grove, bought him a jacket, told him he mattered. But the doubt was there now, curled up in his chest like a stone, and he couldn't make it go away.
+
+Cody stood, legs heavier than they should have been. "Sure. Let's go."
+
+---
+
+The hatch was fifty yards past the goalpost, rusted metal set into the grass like a scar. Lukas popped the padlock with a claw. The hinges groaned as he lifted it, revealing nothing but black underneath.
+
+"Get in. I'll keep the light off until we hit the bottom."
+
+Cody peered into the dark. "You know humans can't see in the dark, right?"
+
+"I know." Lukas's voice softened. "Stay close. I won't let you trip."
+
+He dropped into the tunnel first, boots ringing on metal. Cody followed, feeling his way down the ladder, the rungs cold and rough under his palms. The smell rose to meet him halfway down. Rust, damp concrete, something older underneath, like the crawlspace under his grandmother's house where he used to hide when things got loud upstairs. His borrowed shoes hit the floor with a clang that echoed too long. Somewhere ahead, water dripped in a slow rhythm, each drop landing with a small plunk that made the silence feel bigger.
+
+Lukas thumbed his phone to life. A thin blue glow cut the shadows, just enough to see shapes. The tunnel stretched ahead of them, rebar ribs curving overhead like the inside of some giant's throat. The ceiling hung low enough that Lukas had to duck his ears. Condensation slicked the walls, catching the phone's glow in thin streaks.
+
+"Teeth and trust," Lukas said, voice low. "That's all that matters down here." He rolled the football across his claws, then tossed it underhand. It landed at Cody's feet with a soft thud. "Pick it up. Toss it back when you're ready."
+
+Cody picked up the ball. The laces felt familiar under his fingers, muscle memory stirring even after all these years. He hadn't wanted to remember how this felt. How natural. How easy. He stepped back a few feet, let his wrist flick on the release.
+
+The ball cut through the dark. A soft thwap of leather hitting palm, then Lukas's voice: "Not bad for a guy who hasn't played since high school." He lofted it back, soft spiral. "Again. Loosen your wrist a little more. Let the ball do the work."
+
+They fell into a rhythm. Each throw took Cody a little deeper into the tunnel, a little further from the phone's glow.
+
+"Keep stepping back. I'll track your voice."
+
+Cody backed up until he could barely see his own hands. The darkness was total now, thick enough to swallow everything. He could hear Lukas somewhere ahead, boots scuffing, breath steady. *Teeth and trust.* Cody turned the phrase over in his head. He wound up and threw harder, feeling the snap of his wrist. "Fetch."
+
+The ball whistled through the black. A beat of silence. Then the soft pop of a clean catch, and Lukas's laugh echoed off the walls. "Good boy. Now let's see what you can handle."
+
+The next ball came fast and low, whispering past Cody's knee. He had to bend to catch it. "Playing hard to get, wolfy?"
+
+"Hard to get's the only game I know." The phone light vanished. Total darkness. "Voice only from here. Call out before you throw, and I'll find you."
+
+Cody listened. He could hear Lukas moving somewhere to his left, weight shifting on concrete. He placed his fingers on the laces, stepped into it, and fired a heater into the darkness. Silence. Then a low whistle. "Almost parted my whiskers, otter."
+
+"Otter?" Cody called back. "Why otter?"
+
+"You showed up out of nowhere, slippery, hard to pin down." A pause. "And you've got that look. Like you're always watching the current, figuring out which way to swim."
+
+Cody grinned despite himself. For a moment, he forgot about the note in his pocket. Forgot about Graves and the photos and the questions that wouldn't stop circling. There was just the ball, the darkness, and Lukas's voice somewhere ahead.
+
+The next throw came without warning. One second nothing, the next the ball was inches from his face. He got his hands up on instinct, catching it but barely. "You didn't call it, asshole!"
+
+"You want a whistle, bring one next time!" Lukas's voice echoed from somewhere across the tunnel.
+
+Cody shook his head in the dark, still gripping the ball. Playing catch in a tunnel with a wolf. No lights, no cameras, no rules. The whole thing was ridiculous. He'd been running scared for days, and now here he was, throwing fastballs at a six-and-a-half-foot predator who called him "otter" like it was a compliment. A laugh escaped him before he could stop it. Not because anything was funny. Because nothing made sense anymore, and sometimes that was the only response left. He fired another heater into the dark, close enough to ruffle fur. The ball smacked into Lukas's palm somewhere in the black. A beat. Then: "Damn. Otter's got teeth."
+
+"Had to. Only way to survive." The words came out before Cody could stop them. Heavier than he'd meant. The darkness held them for a moment, let them settle. Lukas's boots rang on metal, getting closer. Then Cody felt a paw brush his wrist. Lukas's thumb pressed against his pulse point, steady pressure, the way you'd check on someone who just said more than they meant to.
+
+"Game's over." Lukas's voice was low. "Let's head back up."
+
+---
+
+The daylight hit like a flashbang after all that dark. Cody squinted, getting his bearings. Practice field stretching ahead, goalposts at the far end, bleachers empty. The sun had climbed high enough to wash the shadows out of the grass. Something moved in the gap under the bleachers. A shape, maybe, pulling back into the dark. Cody blinked against the glare, and when he looked again, the gap was empty. He told himself it had always been empty.
+
+Lukas climbed up behind him and let the hatch fall shut with a thud. He dusted off his jersey, eyes already scanning the quad. "Sun's a spotlight. Anyone asks, we were checking sprinkler lines."
+
+*Anyone asks.* Cody caught the phrase and turned it over in his head. A week ago, it would have meant nothing. Now it echoed with something Graves had said. *Secrets always have a cost.*
+
+They walked toward the stone fountain near the fieldhouse. Water trickled from a wolf-head spout into the trough below. Lukas splashed some on his paws, washing off the dust. Cody did the same. The water was cold. It helped clear his head.
+
+"You're quiet." Lukas glanced over, more curious than concerned.
+
+"Just thinking." Cody kept his eyes on the fountain.
+
+"About?"
+
+*About a conversation I'm not telling you about. About a note in my pocket. About whether you're protecting me or managing me and whether there's even a difference.* "Nothing worth talking about."
+
+Lukas watched him for a moment. His ears twitched once, then settled. He didn't push. But as they walked back toward the dorm, Cody couldn't shake the feeling that something had shifted. The tunnel had been good. Real. For a few minutes, he'd felt like himself again, like the person he used to be before everything went wrong. But now they were back in the light, and the doubt was still there. Waiting.
+
+Lukas's paw brushed his shoulder as they walked. A small touch, barely there. The kind of gesture that used to feel like safety. Now Cody didn't know what it felt like.
+
+His hand brushed his pocket. The note was still there. He didn't take it out, didn't look at it. But he knew where Office 412 was now.
+
+And he knew the way back.
+
+---
+
+---
